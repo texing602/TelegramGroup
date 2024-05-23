@@ -18,11 +18,11 @@
       <a href="https://t.me/ikuaisobot?start=2114110836">🔥TG搜索机器人🔥</a>
     </td>
     <td align="center">
-      <a href="https://curl.qcloud.com/uis5UuWB">
-        <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/%E5%A5%88%E9%A3%9E.png" width="345px;" alt="2"/>
+      <a href="https://t.me/jisou200000">
+        <img src="https://i.imgur.com/4yErWDj.png" width="345px;" alt="2"/>
       </a>
       <br />
-      <a href="https://universalbus.cn/?s=SylOu1w6fa://curl.qcloud.com/uis5UuWB">奈飞合租</a>
+      <a href="https://t.me/jisou200000">TG搜索20万人群</a>
     </td>
      <td align="center">
       <a href="https://aws.amazon.com/cn/free/?sc_channel=seo&sc_campaign=video3">
@@ -65,6 +65,7 @@
 *   Telegram 中文频道:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
 *   Telegram 十万人群:[https://t.me/yxbjx](https://t.me/yxbjx)
 *   Telegram 中文圈:[https://t.me/tgzhcn](https://t.me/tgzhcn)
+*   Telegram 20万人搜索机器人🔥频道🔥视频🔥音乐🔥电影🔥新闻🔥i快搜:[https://t.me/jisou200000](https://t.me/jisou200000)
 *   Telegram 找到有趣的群🔥频道🔥视频🔥音乐🔥电影🔥新闻🔥i快搜:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=2114110836)
 *   Telegram 全网直播回放🔥抖音🔥斗鱼🔥虎牙🔥B站🔥等等🔥:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量🔥流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
