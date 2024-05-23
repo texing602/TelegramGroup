@@ -11,11 +11,11 @@
 <table>
   <tr>
     <td align="center">
-      <a href="https://curl.qcloud.com/43JC4fAE">
-        <img src="https://upload-dianshi-1255598498.file.myqcloud.com/345x200-08ea7ec01febe3c7f600608e973fc44f43efec34.jpg" width="345px;" alt="1"/>
+      <a href="https://t.me/ikuaisobot?start=2114110836">
+        <img src="https://i.imgur.com/1sZNxVk.png" width="345px;" alt="1"/>
       </a>
       <br />
-      <a href="https://curl.qcloud.com/43JC4fAE">优惠套餐一</a>
+      <a href="https://t.me/ikuaisobot?start=2114110836">🔥TG搜索机器人🔥</a>
     </td>
     <td align="center">
       <a href="https://curl.qcloud.com/uis5UuWB">
@@ -48,16 +48,15 @@
       <a href="https://my.racknerd.com/aff.php?aff=6211">48.77每年超高速VPS</a>
     </td>
     <td align="center">
-      <a href="https://t.me/ikuaisobot?start=2114110836">
-        <img src="https://i.imgur.com/qYjNmyS.png" width="345px;" alt="1"/>
+      <a href="https://curl.qcloud.com/43JC4fAE">
+        <img src="https://upload-dianshi-1255598498.file.myqcloud.com/345x200-08ea7ec01febe3c7f600608e973fc44f43efec34.jpg" width="345px;" alt="1"/>
       </a>
       <br />
-      <a href="https://t.me/ikuaisobot?start=2114110836">i快搜机器人</a>
+      <a href="https://curl.qcloud.com/43JC4fAE">优惠套餐一</a>
     </td>
 
 </table>
 
-国内便宜云主机：莱卡云 https://www.lcayun.com/aff/RRECTRHQ   香港 CN2 GIA ￥35
 
 ##### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
 
@@ -66,10 +65,10 @@
 *   Telegram 中文频道:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
 *   Telegram 十万人群:[https://t.me/yxbjx](https://t.me/yxbjx)
 *   Telegram 中文圈:[https://t.me/tgzhcn](https://t.me/tgzhcn)
-*   Telegram 超级搜索🔥超级搜索🔥搜片神器🔥中文搜索🔥TG 神器🔥中文群组🔥:[https://t.me/chaojisoso520](https://t.me/chaojisoso520)
-*   Telegram 全网直播回放🔥抖音🔥斗鱼🔥虎牙🔥B站🔥等等🔥:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 找到有趣的群🔥频道🔥视频🔥音乐🔥电影🔥新闻🔥i快搜:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=2114110836)
+*   Telegram 全网直播回放🔥抖音🔥斗鱼🔥虎牙🔥B站🔥等等🔥:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量🔥流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
+
 
 ### 群组 Group[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BE%A4%E7%BB%84-group)
 
