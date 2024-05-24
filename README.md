@@ -10,12 +10,12 @@
 
 <table>
   <tr>
-    <td align="center">
-      <a href="https://t.me/ikuaisobot?start=2114110836">
-        <img src="https://i.imgur.com/1sZNxVk.png" width="345px;" alt="1"/>
+  <td align="center">
+      <a href="https://t.me/soso?start=a_2114110836">
+        <img src="https://i.imgur.com/tOUTpDe.png" width="345px;" alt="1"/>
       </a>
       <br />
-      <a href="https://t.me/ikuaisobot?start=2114110836">🔥TG搜索机器人🔥</a>
+      <a href="https://t.me/soso?start=a_2114110836">Soso群组机器人</a>
     </td>
     <td align="center">
       <a href="https://t.me/jisou200000">
@@ -33,6 +33,13 @@
     </td>
      </tr>
   <tr>
+ <td align="center">
+      <a href="https://t.me/ikuaisobot?start=2114110836">
+        <img src="https://i.imgur.com/1sZNxVk.png" width="345px;" alt="1"/>
+      </a>
+      <br />
+      <a href="https://t.me/ikuaisobot?start=2114110836">🔥TG搜索机器人🔥</a>
+    </td>
     <td align="center">
       <a href="https://my.frantech.ca/aff.php?aff=6147">
         <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/buyvm_aff.png" width="345px;" alt="1"/>
@@ -47,20 +54,15 @@
       <br />
       <a href="https://my.racknerd.com/aff.php?aff=6211">48.77每年超高速VPS</a>
     </td>
-    <td align="center">
-      <a href="https://curl.qcloud.com/43JC4fAE">
-        <img src="https://upload-dianshi-1255598498.file.myqcloud.com/345x200-08ea7ec01febe3c7f600608e973fc44f43efec34.jpg" width="345px;" alt="1"/>
-      </a>
-      <br />
-      <a href="https://curl.qcloud.com/43JC4fAE">优惠套餐一</a>
-    </td>
+
 
 </table>
 
 
 ### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
 
-*   Telegram 最强搜索机器人🤖:[https://t.me/jisou](https://t.me/jisou?start=a_2114110836)
+*   Telegram 🔥最强群粗机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_2114110836)
+*   Telegram 🔥最强搜索机器人🤖:[https://t.me/jisou](https://t.me/jisou?start=a_2114110836)
 *   Telegram 客户端界面中文汉化:[https://t.me/yxbjx/2255803](https://t.me/yxbjx/2255803)
 *   Telegram 知识库:[https://t.me/YinxiangBiji_News/954](https://t.me/YinxiangBiji_News/954)
 *   Telegram 中文频道:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
