@@ -66,7 +66,7 @@
 *   Telegram 中文频道:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
 *   Telegram 十万人群:[https://t.me/yxbjx](https://t.me/yxbjx)
 *   Telegram 中文圈:[https://t.me/tgzhcn](https://t.me/tgzhcn)
-*   Telegram 20万人搜索机器人🔥频道🔥视频🔥音乐🔥电影🔥新闻🔥i快搜:[https://t.me/jisou200000](https://t.me/jisou200000)
+*   Telegram 20万人搜索机器人🔥频道🔥视频🔥音乐🔥电影🔥新闻🔥极搜:[https://t.me/jisou200000](https://t.me/jisou200000)
 *   Telegram 找到有趣的群🔥频道🔥视频🔥音乐🔥电影🔥新闻🔥i快搜:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=2114110836)
 *   Telegram 全网直播回放🔥抖音🔥斗鱼🔥虎牙🔥B站🔥等等🔥:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量🔥流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
