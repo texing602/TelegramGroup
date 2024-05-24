@@ -61,7 +61,7 @@
 
 ### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
 
-*   Telegram 🔥最强群粗机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_2114110836)
+*   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_2114110836)
 *   Telegram 🔥最强搜索机器人🤖:[https://t.me/jisou](https://t.me/jisou?start=a_2114110836)
 *   Telegram 客户端界面中文汉化:[https://t.me/yxbjx/2255803](https://t.me/yxbjx/2255803)
 *   Telegram 知识库:[https://t.me/YinxiangBiji_News/954](https://t.me/YinxiangBiji_News/954)
