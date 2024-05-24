@@ -25,11 +25,11 @@
       <a href="https://t.me/jisou200000">TG搜索20万人群</a>
     </td>
      <td align="center">
-      <a href="https://aws.amazon.com/cn/free/?sc_channel=seo&sc_campaign=video3">
-        <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/aws.png" width="345px;" alt="3"/>
+      <a href="https://t.me/jisou?start=a_2114110836">
+        <img src="https://i.imgur.com/uTMZCDf.png" width="345px;" alt="3"/>
       </a>
       <br />
-      <a href="https://aws.amazon.com/cn/free/?sc_channel=seo&sc_campaign=video3">免费云服务器</a>
+      <a href="https://t.me/jisou?start=a_2114110836">@极搜机器人</a>
     </td>
      </tr>
   <tr>
@@ -58,8 +58,9 @@
 </table>
 
 
-##### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
+### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
 
+*   Telegram 最强搜索机器人🤖:[https://t.me/jisou](https://t.me/jisou?start=a_2114110836)
 *   Telegram 客户端界面中文汉化:[https://t.me/yxbjx/2255803](https://t.me/yxbjx/2255803)
 *   Telegram 知识库:[https://t.me/YinxiangBiji_News/954](https://t.me/YinxiangBiji_News/954)
 *   Telegram 中文频道:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
