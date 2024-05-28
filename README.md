@@ -17,11 +17,11 @@
 <table>
   <tr>
   <td align="center">
-      <a href="https://t.me/soso?start=a_2114110836">
+      <a href="https://t.me/soso?start=a_7202424896">
         <img src="https://i.imgur.com/tOUTpDe.png" width="345px;" alt="1"/>
       </a>
       <br />
-      <a href="https://t.me/soso?start=a_2114110836">Soso群组机器人</a>
+      <a href="https://t.me/soso?start=a_7202424896">Soso群组机器人</a>
     </td>
     <td align="center">
       <a href="https://t.me/jisou200000">
@@ -31,20 +31,20 @@
       <a href="https://t.me/jisou200000">TG搜索20万人群</a>
     </td>
      <td align="center">
-      <a href="https://t.me/jisou?start=a_2114110836">
+      <a href="https://t.me/jisou?start=a_7202424896">
         <img src="https://i.imgur.com/uTMZCDf.png" width="345px;" alt="3"/>
       </a>
       <br />
-      <a href="https://t.me/jisou?start=a_2114110836">@极搜机器人</a>
+      <a href="https://t.me/jisou?start=a_7202424896">@极搜机器人</a>
     </td>
      </tr>
   <tr>
  <td align="center">
-      <a href="https://t.me/ikuaisobot?start=2114110836">
+      <a href="https://t.me/ikuaisobot?start=7202424896">
         <img src="https://i.imgur.com/1sZNxVk.png" width="345px;" alt="1"/>
       </a>
       <br />
-      <a href="https://t.me/ikuaisobot?start=2114110836">🔥TG搜索机器人🔥</a>
+      <a href="https://t.me/ikuaisobot?start=7202424896">@i快搜机器人</a>
     </td>
     <td align="center">
       <a href="https://my.frantech.ca/aff.php?aff=6147">
@@ -67,8 +67,8 @@
 
 ### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
 
-*   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_2114110836)
-*   Telegram 🔥最强搜索机器人🤖:[https://t.me/jisou](https://t.me/jisou?start=a_2114110836)
+*   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_7202424896)
+*   Telegram 🔥最强搜索机器人🤖:[https://t.me/jisou](https://t.me/jisou?start=a_7202424896)
 *   Telegram 客户端界面中文汉化:[https://t.me/yxbjx/2255803](https://t.me/yxbjx/2255803)
 *   Telegram 知识库:[https://t.me/YinxiangBiji_News/954](https://t.me/YinxiangBiji_News/954)
 *   Telegram 中文频道:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
@@ -76,7 +76,7 @@
 *   Telegram 中文圈:[https://t.me/tgzhcn](https://t.me/tgzhcn)
 *   Telegram 20万人搜群机器人🔥频道🔥视频🔥音乐🔥电影🔥SOSO群组:[https://t.me/sobot1024](https://t.me/sobot1024)
 *   Telegram 20万人搜索机器人🔥频道🔥视频🔥音乐🔥电影🔥新闻🔥极搜:[https://t.me/jisou200000](https://t.me/jisou200000)
-*   Telegram 找到有趣的群🔥频道🔥视频🔥音乐🔥电影🔥新闻🔥i快搜:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=2114110836)
+*   Telegram 20万人搜索机器人🔥频道🔥视频🔥音乐🔥电影🔥新闻🔥i快搜:[https://t.me/ikuaisou](https://t.me/ikuaisou)
 *   Telegram 全网直播回放🔥抖音🔥斗鱼🔥虎牙🔥B站🔥等等🔥:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量🔥流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
