@@ -88,7 +88,8 @@
 | :---        |    :----:   |          :--- |
 | 创建自己的机器人      | [@BotFather](https://t.me/BotFather)       |可以创建和管理专属机器人的地方，开发者会获得一个API令牌，用于控制机器人并接入Telegram API  |
 | 群管理机器人      | [@GroupHelpBot](https://t.me/GroupHelpBot)       |根据自己群组的需要设定一系列的自动化内容，如欢迎语、跳转到社媒账号或独立站、删除信息、警告用户等  |
-| 创建临时邮箱机器人   | [@DropmailBot](https://t.me/DropmailBot)        | 临时邮箱顾名思义是个临时的匿名邮箱，可以用来保护个人隐私和防止垃圾邮件      |
+| 长消息杀手   | [@LongMessageKillerBot](https://t.me/LongMessageKillerBot)        | 最近长消息炸群很多，使用这个长消息杀手机器人可以防止炸群  |
+
 
 #### TG中文群组索引机器人bot
 | 名字     | 链接 | 功能描述     |
@@ -198,6 +199,7 @@
 | 生成私聊机器人   | [@LimitatiBot](https://t.me/LimitatiBot)        | 生成私聊机器人      |
 | 给管理员发消息      | [@callAdminsBot](https://t.me/callAdminsBot)       | 给管理员发消息  |
 | 黑名单机器人      | [@hexlightning_bot](https://t.me/hexlightning_bot)       | 台灣人自己的黑名單機器人  |
+| 创建临时邮箱机器人   | [@DropmailBot](https://t.me/DropmailBot)        | 临时邮箱顾名思义是个临时的匿名邮箱，可以用来保护个人隐私和防止垃圾邮件      |
 
 #### 参考资料
 - [BotoStore](https://botostore.com/) 一个专门收录telegram bot的国外网站，过滤了垃圾邮件和成人内容的bot
