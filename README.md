@@ -18,10 +18,10 @@
   <tr>
   <td align="center">
       <a href="https://t.me/soso?start=a_7202424896">
-        <img src="https://i.imgur.com/tOUTpDe.png" width="345px;" alt="1"/>
+        <img src="https://i.imgur.com/uTMZCDf.png" width="345px;" alt="1"/>
       </a>
       <br />
-      <a href="https://t.me/soso?start=a_7202424896">Soso群组机器人</a>
+      <a href="https://t.me/soso?start=a_7202424896">@搜搜机器人</a>
     </td>
     <td align="center">
       <a href="https://t.me/jisou200000">
@@ -32,7 +32,7 @@
     </td>
      <td align="center">
       <a href="https://t.me/jisou?start=a_7202424896">
-        <img src="https://i.imgur.com/uTMZCDf.png" width="345px;" alt="3"/>
+        <img src="https://i.imgur.com/1VoAGvh.png" width="345px;" alt="3"/>
       </a>
       <br />
       <a href="https://t.me/jisou?start=a_7202424896">@极搜机器人</a>
