@@ -20,41 +20,42 @@
       <a href="https://t.me/soso?start=a_7202424896">@搜搜机器人</a>
     </td>
     <td align="center">
-      <a href="https://t.me/jisou200000">
-        <img src="https://i.imgur.com/4yErWDj.png" width="345px;" alt="2"/>
-      </a>
-      <br />
-      <a href="https://t.me/jisou200000">TG搜索20万人群</a>
-    </td>
-     <td align="center">
       <a href="https://t.me/jisou?start=a_7202424896">
         <img src="https://i.imgur.com/1VoAGvh.png" width="345px;" alt="3"/>
       </a>
       <br />
       <a href="https://t.me/jisou?start=a_7202424896">@极搜机器人</a>
     </td>
-     </tr>
-  <tr>
- <td align="center">
+   <td align="center">
       <a href="https://t.me/ikuaisobot?start=7202424896">
-        <img src="https://i.imgur.com/1sZNxVk.png" width="345px;" alt="1"/>
+        <img src="https://i.imgur.com/CsCtOBH.png" width="345px;" alt="1"/>
       </a>
       <br />
       <a href="https://t.me/ikuaisobot?start=7202424896">@i快搜机器人</a>
     </td>
-    <td align="center">
-      <a href="https://t.me/Tele114bot?start=invite-7202424896">
-        <img src="https://i.imgur.com/hAyotGU.png" width="345px;" alt="2"/>
+     
+     </tr>
+  <tr>
+ <td align="center">
+      <a href="https://t.me/sobot1024">
+        <img src="https://i.imgur.com/tOUTpDe.png" width="345px;" alt="1"/>
       </a>
       <br />
-      <a href="https://t.me/Tele114bot?start=invite-7202424896">@超级引擎</a>
+      <a href="https://t.me/sobot1024">搜搜20万人群</a>
     </td>
     <td align="center">
-      <a href="https://t.me/damososoBot?start=invite-7202424896">
-        <img src="https://i.imgur.com/Km7c8eW.png" width="345px;" alt="1"/>
+      <a href="https://t.me/jisou200000">
+        <img src="https://i.imgur.com/4yErWDj.png" width="345px;" alt="2"/>
       </a>
       <br />
-      <a href="https://t.me/damososoBot?start=invite-7202424896">@达摩索引</a>
+      <a href="https://t.me/jisou200000">极搜20万人群</a>
+    </td>
+    <td align="center">
+      <a href="https://t.me/ikuaisou">
+        <img src="https://i.imgur.com/1sZNxVk.png" width="345px;" alt="1"/>
+      </a>
+      <br />
+      <a href="https://t.me/ikuaisou">i快搜20W人群</a>
     </td>
 
 
@@ -66,6 +67,7 @@
 
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人🤖:[https://t.me/jisou](https://t.me/jisou?start=a_7202424896)
+*   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
 *   Telegram 客户端界面中文汉化:[https://t.me/yxbjx/2255803](https://t.me/yxbjx/2255803)
 *   Telegram 知识库:[https://t.me/YinxiangBiji_News/954](https://t.me/YinxiangBiji_News/954)
 *   Telegram 中文频道:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
