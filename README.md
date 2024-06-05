@@ -43,19 +43,20 @@
       <a href="https://t.me/ikuaisobot?start=7202424896">@i快搜机器人</a>
     </td>
     <td align="center">
-      <a href="https://my.frantech.ca/aff.php?aff=6147">
-        <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/buyvm_aff.png" width="345px;" alt="1"/>
+      <a href="https://t.me/Tele114bot?start=invite-7202424896">
+        <img src="https://i.imgur.com/hAyotGU.png" width="345px;" alt="2"/>
       </a>
       <br />
-      <a href="https://my.frantech.ca/aff.php?aff=6147">￥10一个月的海外VPS</a>
+      <a href="https://t.me/Tele114bot?start=invite-7202424896">@超级引擎</a>
     </td>
     <td align="center">
-      <a href="https://my.racknerd.com/aff.php?aff=6211">
-        <img src="https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/racknerd_aff.png" width="345px;" alt="2"/>
+      <a href="https://t.me/damososoBot?start=invite-7202424896">
+        <img src="https://i.imgur.com/Km7c8eW.png" width="345px;" alt="1"/>
       </a>
       <br />
-      <a href="https://my.racknerd.com/aff.php?aff=6211">48.77每年超高速VPS</a>
+      <a href="https://t.me/damososoBot?start=invite-7202424896">@达摩索引</a>
     </td>
+
 
 
 </table>
