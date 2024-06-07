@@ -26,12 +26,13 @@
       <br />
       <a href="https://t.me/jisou?start=a_7202424896">@极搜机器人</a>
     </td>
-        <td align="center">
-      <a href="https://t.me/smss?start=spread_7202424896">
-        <img src="https://i.imgur.com/8Jy7nYp.png" width="345px;" alt="1"/>
+   
+   <td align="center">
+      <a href="https://t.me/ikuaisobot?start=7202424896">
+        <img src="https://i.imgur.com/CsCtOBH.png" width="345px;" alt="1"/>
       </a>
       <br />
-      <a href="https://t.me/smss?start=spread_7202424896">@神马搜索</a>
+      <a href="https://t.me/ikuaisobot?start=7202424896">@i快搜</a>
     </td>
 
   <tr>
@@ -51,11 +52,11 @@
     </td>
 
    <td align="center">
-      <a href="https://t.me/ikuaisobot?start=7202424896">
-        <img src="https://i.imgur.com/CsCtOBH.png" width="345px;" alt="1"/>
+      <a href="https://t.me/sousou200000">
+        <img src="https://i.imgur.com/gUVvyRs.png" width="345px;" alt="1"/>
       </a>
       <br />
-      <a href="https://t.me/ikuaisobot?start=7202424896">@i快搜</a>
+      <a href="https://t.me/sousou200000">20万人中文搜索群</a>
     </td>
 
 
@@ -66,7 +67,7 @@
 
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人🤖:[https://t.me/jisou](https://t.me/jisou?start=a_7202424896)
-*   Telegram 🔥什么都能搜神马搜索🤖:[https://t.me/smss](https://t.me/smss?start=spread_7202424896)
+*   Telegram 🔥20万中文搜索群(18+❗️):[https://t.me/sousou200000](https://t.me/sousou200000)
 *   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
 *   Telegram 客户端界面中文汉化:[https://t.me/yxbjx/2255803](https://t.me/yxbjx/2255803)
 *   Telegram 知识库:[https://t.me/YinxiangBiji_News/954](https://t.me/YinxiangBiji_News/954)
