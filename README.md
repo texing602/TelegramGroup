@@ -67,7 +67,8 @@
 
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人🤖:[https://t.me/jisou](https://t.me/jisou?start=a_7202424896)
-*   Telegram 🔥20万中文搜索群(18+❗️):[https://t.me/sousou200000](https://t.me/sousou200000)
+*   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
+*   Telegram 🔥20万中文搜索群:[https://t.me/sousou200000](https://t.me/sousou200000)
 *   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
 *   Telegram 客户端界面中文汉化:[https://t.me/yxbjx/2255803](https://t.me/yxbjx/2255803)
 *   Telegram 知识库:[https://t.me/YinxiangBiji_News/954](https://t.me/YinxiangBiji_News/954)
