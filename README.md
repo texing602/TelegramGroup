@@ -65,16 +65,12 @@
 
 ### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
 
+*   Telegram 客户端界面中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人🤖:[https://t.me/jisou](https://t.me/jisou?start=a_7202424896)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
 *   Telegram 🔥20万中文搜索群:[https://t.me/sousou200000](https://t.me/sousou200000)
 *   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
-*   Telegram 客户端界面中文汉化:[https://t.me/yxbjx/2255803](https://t.me/yxbjx/2255803)
-*   Telegram 知识库:[https://t.me/YinxiangBiji_News/954](https://t.me/YinxiangBiji_News/954)
-*   Telegram 中文频道:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
-*   Telegram 十万人群:[https://t.me/yxbjx](https://t.me/yxbjx)
-*   Telegram 中文圈:[https://t.me/tgzhcn](https://t.me/tgzhcn)
 *   Telegram 20万人搜群机器人🔥频道🔥视频🔥音乐🔥电影🔥SOSO群组:[https://t.me/sobot1024](https://t.me/sobot1024)
 *   Telegram 20万人搜索机器人🔥频道🔥视频🔥音乐🔥电影🔥新闻🔥极搜:[https://t.me/jisou200000](https://t.me/jisou200000)
 *   Telegram 20万人搜索机器人🔥频道🔥视频🔥音乐🔥电影🔥新闻🔥i快搜:[https://t.me/ikuaisou](https://t.me/ikuaisou)
