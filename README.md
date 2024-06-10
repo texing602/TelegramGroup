@@ -223,13 +223,13 @@
 
 ###### 番茄[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
 
+*   Shadowsocks&Clash:[https://t.me/@shadowsocks_clash](https://t.me/@shadowsocks_clash)
 *   搬瓦工 (BandwagonHost):[https://t.me/BandwagonHostUsers](https://t.me/BandwagonHostUsers)
 *   机场交流群:[https://t.me/rixCloud_User](https://t.me/rixCloud_User)
 *   Surge 交流:[https://t.me/loveapps](https://t.me/loveapps)
 *   Surge Pro:[https://t.me/SurgePro](https://t.me/SurgePro)
 *   Quantumult X:[https://t.me/QuanXApp](https://t.me/QuanXApp)
 *   Quantumult:[https://t.me/quantumult](https://t.me/quantumult)
-*   Shadowrocket:[https://t.me/ShadowrocketApp](https://t.me/ShadowrocketApp)
 *   Loon:[https://t.me/Loon0x00](https://t.me/Loon0x00)
 *   Choc:[https://t.me/choc_tg](https://t.me/choc_tg)
 *   LanceX:[https://t.me/lancex_app](https://t.me/lancex_app)
@@ -273,15 +273,6 @@
 *   ShadowsocksR 讨论组 2 群:[https://t.me/chatssr](https://t.me/chatssr)
 *   ShadowsocksRR 讨论组:[https://t.me/ssrrchat](https://t.me/ssrrchat)
 *   Netch 游戏加速工具:[https://t.me/Netch_Discuss_Group](https://t.me/Netch_Discuss_Group)
-*   Clash:
-*   Clash for Windows:
-*   Clash for Android:
-*   Clash.NET 公开群:[https://t.me/ClashDotNetFramework](https://t.me/ClashDotNetFramework)
-*   Clash.Mini 简陋小工具:[https://t.me/ClashMin1](https://t.me/ClashMin1)
-*   Clash 交流群:[https://t.me/Clashclient](https://t.me/Clashclient)
-*   ClashR 交流群组:[https://t.me/ClashR_Chat](https://t.me/ClashR_Chat)
-*   ClashW:[https://t.me/joinchat/AAAAAFHaKhGQaovvfpKr4g](https://t.me/joinchat/AAAAAFHaKhGQaovvfpKr4g)
-*   ShellClash 交流群:[https://t.me/clashfm](https://t.me/clashfm)
 *   Trojan-Qt5:[https://t.me/TrojanQt5](https://t.me/TrojanQt5)
 *   Pharos Pro For iOS:[https://t.me/Shadow_x_user_support](https://t.me/Shadow_x_user_support)
 *   Pharos Pro For Android:[https://t.me/joinchat/EthDYRQ80Clo_dj8e3PJnQ](https://t.me/joinchat/EthDYRQ80Clo_dj8e3PJnQ)
