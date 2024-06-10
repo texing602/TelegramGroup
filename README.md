@@ -223,7 +223,7 @@
 
 ###### 番茄[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
 
-*   Shadowsocks&Clash:[https://t.me/@shadowsocks_clash](https://t.me/@shadowsocks_clash)
+*   Shadowsocks&Clash:[https://t.me/shadowsocks_clash](https://t.me/shadowsocks_clash)
 *   搬瓦工 (BandwagonHost):[https://t.me/BandwagonHostUsers](https://t.me/BandwagonHostUsers)
 *   机场交流群:[https://t.me/rixCloud_User](https://t.me/rixCloud_User)
 *   Surge 交流:[https://t.me/loveapps](https://t.me/loveapps)
