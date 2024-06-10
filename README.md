@@ -71,13 +71,14 @@
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人🤖:[https://t.me/jisou](https://t.me/jisou?start=a_7202424896)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
-*   Telegram 🔥20万中文搜索群:[https://t.me/sousou200000](https://t.me/sousou200000)
 *   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
+*   Telegram 🔥20万中文搜索群:[https://t.me/sousou200000](https://t.me/sousou200000)
 *   Telegram 🔥20万人搜搜群:[https://t.me/sobot1024](https://t.me/sobot1024)
 *   Telegram 🔥20万人极搜群:[https://t.me/jisou200000](https://t.me/jisou200000)
 *   Telegram 🔥20万人i快搜群:[https://t.me/ikuaisou](https://t.me/ikuaisou)
+*   Telegram 🔥20万人神马搜索群:[https://t.me/smss200000](https://t.me/smss200000)
 *   Telegram 🔥TON索引-频道组搜索:[https://t.me/TonCnBot](https://t.me/ton2index)
-* 🔥赏颜阁🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
+*   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
@@ -95,7 +96,7 @@
 #### TG中文群组索引机器人bot
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-| 神马索引机器人      | [@smss](https://t.me/smss)       | 神马索引机器人，可以通过关键词查找  |
+| 神马索引机器人      | [@smss](https://t.me/smss?start=7202424896)       | 神马索引机器人，可以通过关键词查找  |
 | 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=7202424896)        | 帮助您找到感兴趣的群组、频道和机器人！      |
 | TON索引     | [@https://t.me/TonCnBot](https://t.me/TonCnBot?start=7202424896)       | 帮助您找到感兴趣的群组、频道和机器人！  |
 
