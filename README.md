@@ -76,8 +76,8 @@
 *   Telegram 🔥20万人搜搜群:[https://t.me/sobot1024](https://t.me/sobot1024)
 *   Telegram 🔥20万人极搜群:[https://t.me/jisou200000](https://t.me/jisou200000)
 *   Telegram 🔥20万人i快搜群:[https://t.me/ikuaisou](https://t.me/ikuaisou)
+*   Telegram 🔥TON索引-频道组搜索:[https://t.me/TonCnBot](https://t.me/ton2index)
 * 🔥赏颜阁🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
-
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
@@ -95,10 +95,9 @@
 #### TG中文群组索引机器人bot
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-| 超级索引      | [@hao1234bot](https://t.me/hao1234bot)       | Telegram上的Hao123，频道大全，也有个频道，是发送关键词，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
-| TGX-频道秘书      | [@zh_secretary_bot](https://t.me/zh_secretary_bot)       | TGX-索引公告板 @zh_secretary 的群组频道登记机器人，优点：和【TGCN-群组索引计划】差不多，又有可以看群组频道推荐的地方了，缺点：不能通过关键词查找  |
-| 群组频道导航机器人   | [@qunzudaquan_bot](https://t.me/qunzudaquan_bot)        | 添加 @qunzudaquan_bot 到你的群组自动收录，私聊发送你的群组频道公开链接到：@qunzudaquan_bot，未收录或更新资料发送/update      |
-| 群组索引计划      | [@zh_groups_bot](https://t.me/zh_groups_bot)       | 收录群组的，本来有个非常好用的推荐频道，可惜目前因有人滥用已停用频道推荐功能。  |
+| 神马索引机器人      | [@smss](https://t.me/smss)       | 神马索引机器人，可以通过关键词查找  |
+| 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=7202424896)        | 帮助您找到感兴趣的群组、频道和机器人！      |
+| TON索引     | [@https://t.me/TonCnBot](https://t.me/TonCnBot?start=7202424896)       | 帮助您找到感兴趣的群组、频道和机器人！  |
 
 #### 群组抽奖机器人
 | 名字     | 链接 | 功能描述     |
