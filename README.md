@@ -26,16 +26,17 @@
         <img src="https://i.imgur.com/1VoAGvh.png" width="345px;" alt="3"/>
       </a>
       <br />
-      <a href="https://t.me/jisou?start=a_7202424896">@极搜机器人</a>
+      <a href="https://t.me/jisou?start=a_7202424896">@极搜JiSou</a>
     </td>
-
    <td align="center">
-      <a href="https://t.me/ikuaisobot?start=7202424896">
-        <img src="https://i.imgur.com/CsCtOBH.png" width="345px;" alt="1"/>
+      <a href="https://t.me/jisou?start=a_7202424896">
+        <img src="https://i.imgur.com/1VoAGvh.png" width="345px;" alt="3"/>
       </a>
       <br />
-      <a href="https://t.me/ikuaisobot?start=7202424896">@i快搜</a>
+      <a href="https://t.me/jiso?start=a_7202424896">@极搜JiSo</a>
     </td>
+
+ 
 
   <tr>
  <td align="center">
@@ -53,12 +54,12 @@
       <a href="https://t.me/jisou200000">极搜20万人群</a>
     </td>
 
-   <td align="center">
-      <a href="https://t.me/sousou200000">
-        <img src="https://i.imgur.com/gUVvyRs.png" width="345px;" alt="1"/>
+  <td align="center">
+      <a href="https://t.me/ikuaisobot?start=7202424896">
+        <img src="https://i.imgur.com/CsCtOBH.png" width="345px;" alt="1"/>
       </a>
       <br />
-      <a href="https://t.me/sousou200000">20万人中文搜索群</a>
+      <a href="https://t.me/ikuaisobot?start=7202424896">@i快搜</a>
     </td>
 
 
@@ -67,9 +68,11 @@
 
 ### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
 
-*   Telegram 客户端界面中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
+*   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
+*   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_7202424896)
-*   Telegram 🔥最强搜索机器人🤖:[https://t.me/jisou](https://t.me/jisou?start=a_7202424896)
+*   Telegram 🔥最强搜索机器人JiSou🤖:[https://t.me/jisou](https://t.me/jisou?start=a_7202424896)
+*   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_7202424896)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
 *   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
 *   Telegram 🔥20万中文搜索群:[https://t.me/sousou200000](https://t.me/sousou200000)
