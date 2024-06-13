@@ -227,6 +227,7 @@
 
 ###### 番茄[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
 
+*   每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Shadowsocks&Clash:[https://t.me/shadowsocks_clash](https://t.me/shadowsocks_clash)
 *   搬瓦工 (BandwagonHost):[https://t.me/BandwagonHostUsers](https://t.me/BandwagonHostUsers)
 *   机场交流群:[https://t.me/rixCloud_User](https://t.me/rixCloud_User)
@@ -500,13 +501,13 @@
 
 ###### 社群[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%A4%BE%E7%BE%A4)
 
-*   Telegram 中文社群:[https://t.me/yxbjx](https://t.me/yxbjx)
+*   币圈日报:[https://t.me/bidaily](https://t.me/bidaily)
+*   币安官方中文群:[https://t.me/BinanceChinese](https://t.me/BinanceChinese)
 *   Vultr 中文社群:[https://t.me/vultr_group](https://t.me/vultr_group)
 *   RSS 交流群:[https://t.me/joinchat/Ag98F0evTbZwY8HB7oH4fA](https://t.me/joinchat/Ag98F0evTbZwY8HB7oH4fA)
 *   笔记软件交流讨论:[https://t.me/joinchat/Ag98F0DdcZr1X1xS6lJsyA](https://t.me/joinchat/Ag98F0DdcZr1X1xS6lJsyA)
 *   幕布用户群:[https://t.me/joinchat/Ag98F01tRQ2RIk_icHhiyA](https://t.me/joinchat/Ag98F01tRQ2RIk_icHhiyA)
 *   iMazing 用户群:[https://t.me/joinchat/Ag98F07KJmIlmwSCfTOKxQ](https://t.me/joinchat/Ag98F07KJmIlmwSCfTOKxQ)
-*   币安官方中文群:[https://t.me/BinanceChinese](https://t.me/BinanceChinese)
 *   Newlearner 水群:[https://t.me/NewlearnerGroup](https://t.me/NewlearnerGroup)
 *   大学联盟:[https://t.me/UniversityAlliance](https://t.me/UniversityAlliance)
 *   湖南大学:[https://t.me/HunanUniversity](https://t.me/HunanUniversity)
