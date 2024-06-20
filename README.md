@@ -29,7 +29,7 @@
       <a href="https://t.me/jisou?start=a_7202424896">@极搜JiSou</a>
     </td>
    <td align="center">
-      <a href="https://t.me/jisou?start=a_7202424896">
+      <a href="https://t.me/jiso?start=a_7202424896">
         <img src="https://i.imgur.com/1VoAGvh.png" width="345px;" alt="3"/>
       </a>
       <br />
