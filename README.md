@@ -42,7 +42,7 @@
       <a href="https://t.me/jiso?start=a_7202424896">@极搜JiSo</a>
     </td>
 
- 
+
 
   <tr>
  <td align="center">
@@ -80,6 +80,7 @@
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人JiSou🤖:[https://t.me/jisou](https://t.me/jisou?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_7202424896)
+*   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
 *   Telegram 🥷暗网搜索🔍:[https://t.me/anwangsearch](https://t.me/anwangsearch)
 *   Telegram 🔥搜片神器🎥:[https://t.me/soupian20w](https://t.me/soupian20w)
