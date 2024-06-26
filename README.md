@@ -32,7 +32,7 @@
         <img src="https://i.imgur.com/1VoAGvh.png" width="345px;" alt="3"/>
       </a>
       <br />
-      <a href="https://t.me/jisou?start=a_7202424896">@极搜JiSou</a>
+      <a href="t.me/jisou2bot?start=a_7202424896">@极搜JiSou</a>
     </td>
    <td align="center">
       <a href="https://t.me/jiso?start=a_7202424896">
@@ -78,7 +78,7 @@
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/soso?start=a_7202424896)
-*   Telegram 🔥最强搜索机器人JiSou🤖:[https://t.me/jisou](https://t.me/jisou?start=a_7202424896)
+*   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou2bot](t.me/jisou2bot?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_7202424896)
 *   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
