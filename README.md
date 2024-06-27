@@ -28,11 +28,11 @@
       <a href="https://t.me/sosoo?start=a_7202424896">@搜搜机器人</a>
     </td>
     <td align="center">
-      <a href="https://t.me/jisou123bot?start=a_7202424896">
+      <a href="https://t.me/jisou2bot?start=a_7202424896">
         <img src="https://i.imgur.com/1VoAGvh.png" width="345px;" alt="3"/>
       </a>
       <br />
-      <a href="https://t.me/jisou123bot?start=a_7202424896">@极搜JiSou</a>
+      <a href="https://t.me/jisou2bot?start=a_7202424896">@极搜JiSou</a>
     </td>
    <td align="center">
       <a href="https://t.me/jiso?start=a_7202424896">
@@ -78,7 +78,7 @@
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_7202424896)
-*   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou123bot?start=a_7202424896)
+*   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_7202424896)
 *   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
@@ -112,7 +112,7 @@
 | :---        |    :----:   |          :--- |
 |SOSO|[@soso](https://t.me/sosoo?start=a_7202424896)|群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
 | 极搜JiSo | [@jiso](https://t.me/jiso?start=a_7202424896)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
-| 极搜JiSou     | [@jisou](https://t.me/jisou123bot?start=a_7202424896)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
+| 极搜JiSou     | [@jisou](https://t.me/jisou2bot?start=a_7202424896)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
 | 神马索引机器人      | [@smss](https://t.me/smss?start=spread_7202424896)       | 神马索引机器人，可以通过关键词查找  |
 | 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=7202424896)        | 帮助您找到感兴趣的群组、频道和机器人！      |
 | TON索引     | [@https://t.me/TonCnBot](https://t.me/TonCnBot?start=7202424896)       | 帮助您找到感兴趣的群组、频道和机器人！  |
