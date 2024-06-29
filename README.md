@@ -102,6 +102,12 @@
 | wallet       |   [@wallet](https://t.me/wallet)  | Telegram官方钱包，支持比特币、USDT和TON的应用内支付|
 | okpay      | [@OkayPayBot](https://t.me/OkayPayBot?start=creditCardInvite--7202424896)       |可用于店租（Amazon、Shopify、Shope等）、广告（Facebook、Google等）、云服务、游戏、开发者应用、海淘购物等全场景支付。|
 
+### 交易所提币
+| 名字     | 链接 | 功能描述     |
+| :---        |    :----:   |          :--- |
+| 币安    |   [https://accounts.binance.com](https://accounts.binance.com/zh-CN/register?ref=896983517)   |       币安交易所(持有bnb减免40%手续费)|
+| 欧易OKX    |   [https://www.okx.com](https://www.cnouyi.ninja/join/78810492)   |      欧易交易所(减免20%手续费)|
+
 ### 常用机器人
 
 🔥Telegram专门的机器人合集🔥：[https://github.com/itgoyo/TelegramBot](https://github.com/itgoyo/TelegramBot)
