@@ -81,6 +81,7 @@
 *   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_7202424896)
 *   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)
+*   Telegram 🔥华夏索引🤖:[https://huaxia123_bot](https://t.me/aiso?start=telegram_7202424896)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
 *   Telegram 🥷暗网搜索🔍:[https://t.me/anwangsearch](https://t.me/anwangsearch)
 *   Telegram 🔥搜片神器🎥:[https://t.me/soupian20w](https://t.me/soupian20w)
@@ -95,6 +96,7 @@
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 *   Telegram 🎮PG电子爆币:[https://t.me/PGPGSoftbot](https://t.me/PGPGSoftbot?start=10264)
+*   Telegram 🎰起点电子:[https://t.me/qidiandianziBot](https://t.me/qidiandianziBot?start=43923)
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
