@@ -87,6 +87,7 @@
 *   Telegram 🔥搜片神器🎥:[https://t.me/soupian20w](https://t.me/soupian20w)
 *   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
 *   Telegram 🔥网盘资源🔥电影🔥视频:[https://t.me/sousou200000](https://t.me/sousou200000)
+*   Telegram 🔥20万人Telegram中文社群:[https://t.me/tgcnchat](https://t.me/tgcnchat)
 *   Telegram 🔥20万人搜搜群:[https://t.me/sobot1024](https://t.me/sobot1024)
 *   Telegram 🔥20万人极搜群:[https://t.me/jisou200000](https://t.me/jisou200000)
 *   Telegram 🔥20万人i快搜群:[https://t.me/ikuaisou](https://t.me/ikuaisou)
