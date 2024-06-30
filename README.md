@@ -110,6 +110,24 @@
 | 币安    |   [https://accounts.binance.com](https://accounts.binance.com/zh-CN/register?ref=896983517)   |       币安交易所(持有bnb减免40%手续费)|
 | 欧易OKX    |   [https://www.okx.com](https://www.cnouyi.ninja/join/78810492)   |      欧易交易所(减免20%手续费)|
 
+### 社工库机器人
+以下是经过纠正的 Markdown 格式：
+
+### 社工库机器人
+
+| 名字     | 链接 | 功能描述     |
+| :---        |    :----:   |          :--- |
+| 暗精灵社工库      |  [@AJL01_bot](https://t.me/AJL01_bot?start=X47LlHGN7s)   |       注册即可拥有一定免费额度 |
+| 星盾社工机器人 |   [@XingDun2Bot](https://t.me/XingDun2Bot?start=fBa7YO9)   |   数据不定期更新，查询免费币 |
+| 屁屁侦探社工库机器人  |  [@ppsgk_bot](https://t.me/ppsgk_bot?start=7202424896)   |   注册就送价值 10 USDT积分 |
+| 小丑社工机器人   |   [@Joker_SGKbot](https://t.me/Joker_SGKbot?start=cDRwBhbqEl)   |    **无需签到，每天默认送两次免费查询机会** |
+| 爱社工库    |  [@aishegongkubot](https://t.me/aishegongkubot?start=AISGK_6PNUQFAQ)  |     签到有积分 |
+| 007工具机器人      |   [@sgk007_bot](https://t.me/sgk007_bot?start=NzIwMjQyNDg5Ng)  | 验证你提供的信息是否是一个人的 |
+| 搜狗社工库  |  [@SOUGOUSGK_BOT](https://t.me/SOUGOUSGK_BOT?start=NzIwMjQyNDg5Ng==)  |    注册即有积分 |
+| Botnet免费社工机器人    | [@SGK_0001_bot](https://t.me/SGK_0001_bot?start=7202424896)   |    每日签到、邀请等方式获取 |
+| Hope机器人      |   [@HereisHopeBot](https://t.me/HereisHopeBot?start=7202424896)  | 综合数据机器人 |
+| 情报局社工库  |   [@InfSGK0_bot](https://t.me/InfSGK0_bot?start=NzIwMjQyNDg5Ng==)  |   注册、签到有积分 |
+
 ### 常用机器人
 
 🔥Telegram专门的机器人合集🔥：[https://github.com/itgoyo/TelegramBot](https://github.com/itgoyo/TelegramBot)
@@ -131,6 +149,7 @@
 | 神马索引机器人      | [@smss](https://t.me/smss?start=spread_7202424896)       | 神马索引机器人，可以通过关键词查找  |
 | 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=7202424896)        | 帮助您找到感兴趣的群组、频道和机器人！      |
 | TON索引     | [@https://t.me/TonCnBot](https://t.me/TonCnBot?start=7202424896)       | 帮助您找到感兴趣的群组、频道和机器人！  |
+
 
 #### 群组抽奖机器人
 | 名字     | 链接 | 功能描述     |
