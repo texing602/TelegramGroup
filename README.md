@@ -54,9 +54,6 @@
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
-*   Telegram 🎮PG电子爆币:[https://t.me/PGPGSoftbot](https://t.me/PGPGSoftbot?start=10264)
-*   Telegram 🎮PG电子🎰爆币:[https://t.me/PgGameSlotBot](https://t.me/PgGameSlotBot?start=43622)
-*   Telegram 🎰起点电子:[https://t.me/qidiandianziBot](https://t.me/qidiandianziBot?start=43923)
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
