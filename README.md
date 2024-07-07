@@ -48,15 +48,12 @@
 *   Telegram 🔥20万人Telegram中文社群:[https://t.me/tgcnchat](https://t.me/tgcnchat)
 *   Telegram 🔥20万人搜搜群:[https://t.me/sobot1024](https://t.me/sobot1024)
 *   Telegram 🔥20万人极搜群:[https://t.me/jisou200000](https://t.me/jisou200000)
-*   Telegram 🔥20万人i快搜群:[https://t.me/ikuaisou](https://t.me/ikuaisou)
+*   Telegram 🔥20万人华夏搜索群:[https://t.me/huaxia20w](https://t.me/huaxia20w)
 *   Telegram 🔥20万人神马搜索群:[https://t.me/smss200000](https://t.me/smss200000)
 * 🔥 AI脱衣👚换脸👱‍♀️机器人🤖 :[https://t.me/youyikubot](https://t.me/youyikubot?start=17D7E2DC-87BD-42DD-E92C-A91AC1BC66EB)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
-*   Telegram 🎮PG电子爆币:[https://t.me/PGPGSoftbot](https://t.me/PGPGSoftbot?start=10264)
-*   Telegram 🎮PG电子🎰爆币:[https://t.me/PgGameSlotBot](https://t.me/PgGameSlotBot?start=43622)
-*   Telegram 🎰起点电子:[https://t.me/qidiandianziBot](https://t.me/qidiandianziBot?start=43923)
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
@@ -70,22 +67,6 @@
 | 币安    |   [https://accounts.binance.com](https://accounts.binance.com/zh-CN/register?ref=896983517)   |       币安交易所(持有bnb减免40%手续费)|
 | 欧易OKX    |   [https://www.okx.com](https://www.cnouyi.ninja/join/78810492)   |      欧易交易所(减免20%手续费)|
 
-### 社工库机器人
-
-| 名字     | 链接 | 功能描述     |
-| :---        |    :----:   |          :--- |
-| 暗精灵社工库      |  [@AJL01_bot](https://t.me/AJL01_bot?start=X47LlHGN7s)   |       注册即可拥有一定免费额度 |
-| Botnet免费社工机器人    | [@SGK_0001_bot](https://t.me/SGK_0001_bot?start=7202424896)   |    每日签到、邀请等方式获取 |
-| AISGK   |   [@AISGK](https://t.me/aishegongkubot?start=AISGK_6PNUQFAQ)   |   可免费使用  |
-| 小丑社工机器人   |   [@Joker_SGKbot](https://t.me/Joker_SGKbot?start=cDRwBhbqEl)   |    **无需签到，每天默认送两次免费查询机会** |
-| 星盾社工机器人 |   [@XingDun2Bot](https://t.me/XingDun2Bot?start=fBa7YO9)   |   数据不定期更新，查询免费币 |
-| 屁屁侦探社工库机器人  |  [@ppsgk_bot](https://t.me/ppsgk_bot?start=7202424896)   |   注册就送价值 10 USDT积分 |
-| 爱社工库    |  [@aishegongkubot](https://t.me/aishegongkubot?start=AISGK_6PNUQFAQ)  |     签到有积分 |
-| 007工具机器人      |   [@sgk007_bot](https://t.me/sgk007_bot?start=NzIwMjQyNDg5Ng)  | 验证你提供的信息是否是一个人的 |
-| 搜狗社工库  |  [@SOUGOUSGK_BOT](https://t.me/SOUGOUSGK_BOT?start=NzIwMjQyNDg5Ng==)  |    注册即有积分 |
-| Hope机器人      |   [@HereisHopeBot](https://t.me/HereisHopeBot?start=7202424896)  | 综合数据机器人 |
-| 情报局社工库  |   [@InfSGK0_bot](https://t.me/InfSGK0_bot?start=NzIwMjQyNDg5Ng==)  |   注册、签到有积分 |
-
 ### 常用机器人
 
 🔥Telegram专门的机器人合集🔥：[https://github.com/itgoyo/TelegramBot](https://github.com/itgoyo/TelegramBot)
@@ -96,7 +77,6 @@
 | 群管理机器人      | [@GroupHelpBot](https://t.me/GroupHelpBot)       |根据自己群组的需要设定一系列的自动化内容，如欢迎语、跳转到社媒账号或独立站、删除信息、警告用户等  |
 | 长消息杀手   | [@LongMessageKillerBot](https://t.me/LongMessageKillerBot)        | 最近长消息炸群很多，使用这个长消息杀手机器人可以防止炸群  |
 | 广告杀手   | [@GuangGaoShaShouBot](https://t.me/GuangGaoShaShouBot)        | 本机器人专业封杀中文广告内容以及广告号 |
-
 
 #### TG中文群组索引机器人bot
 | 名字     | 链接 | 功能描述     |
