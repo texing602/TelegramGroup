@@ -73,6 +73,7 @@
 | 群管理机器人      | [@GroupHelpBot](https://t.me/GroupHelpBot)       |根据自己群组的需要设定一系列的自动化内容，如欢迎语、跳转到社媒账号或独立站、删除信息、警告用户等  |
 | 长消息杀手   | [@LongMessageKillerBot](https://t.me/LongMessageKillerBot)        | 最近长消息炸群很多，使用这个长消息杀手机器人可以防止炸群  |
 | 广告杀手   | [@GuangGaoShaShouBot](https://t.me/GuangGaoShaShouBot)        | 本机器人专业封杀中文广告内容以及广告号 |
+|  频道搬运机器人  | [@msg_get_bot](https://t.me/msg_get_bot?start=R0izrpNB)        | 破解频道/群组不允许转发机器人,频道主运营利器|
 
 #### TG中文群组索引机器人bot
 | 名字     | 链接 | 功能描述     |
