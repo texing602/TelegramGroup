@@ -26,6 +26,15 @@
 
 ### 10000+Telegram群组、频道、机器人导航页面：[https://telegramchannels.github.io](https://telegramchannels.github.io/)
 
+### Telegram空投
+
+空投地址:[https://t.me/dogshouse_bot](https://t.me/dogshouse_bot/join?startapp=MAYhBrmaSaeH32s9jOXfgA)
+
+空投数量根据账号活跃度和年份决定。我一下子撸了5123个，你们呢？
+
+<img src="https://i.imgur.com/7G6cVWc.png" width="250">
+
+
 ### 推荐
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
