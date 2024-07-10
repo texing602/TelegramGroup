@@ -30,7 +30,7 @@
 
 空投地址:[https://t.me/dogshouse_bot](https://t.me/dogshouse_bot/join?startapp=MAYhBrmaSaeH32s9jOXfgA)
 
-空投数量根据账号活跃度和年份决定。我一下子撸了5123个，你们呢？
+空投数量根据账号活跃度和年份决定，后面可以交易所出售！我一下子撸了5123个，你们呢？
 
 <img src="https://i.imgur.com/7G6cVWc.png" width="250">
 
