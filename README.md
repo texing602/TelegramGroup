@@ -30,7 +30,7 @@
 
 空投地址:[https://t.me/dogshouse_bot](https://t.me/dogshouse_bot/join?startapp=MAYhBrmaSaeH32s9jOXfgA)
 
-空投数量根据账号活跃度和年份决定，后面可以交易所出售！我一下子撸了5123个，你们呢？
+空投数量根据账号活跃度和年份决定，场外价格0.3U/1个！我一下子撸了5123个，你们呢？
 
 <img src="https://i.imgur.com/7G6cVWc.png" width="250">
 
@@ -72,6 +72,7 @@
 | :---        |    :----:   |          :--- |
 | 币安    |   [https://accounts.binance.com](https://accounts.binance.com/zh-CN/register?ref=896983517)   |       币安交易所(持有bnb减免40%手续费)|
 | 欧易OKX    |   [https://www.okx.com](https://www.cnouyi.ninja/join/78810492)   |      欧易交易所(减免20%手续费)|
+| ByBit    |   [https://www.bybit.com/](https://www.bybit.com/invite?ref=4VLKDMW)   |      ByBit交易所(减免30%手续费)|
 
 ### 常用机器人
 
