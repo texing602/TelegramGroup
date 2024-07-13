@@ -15,7 +15,7 @@
 </div>
 
 
-| [![@搜搜机器人](https://i.imgur.com/uTMZCDf.png)<br>@搜搜机器人](https://t.me/sosoo?start=a_7202424896) | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) | [![@华夏搜索](https://i.imgur.com/cYIp5YJ.png)<br>@华夏搜索](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP) |
+| [![@搜搜机器人](https://i.imgur.com/uTMZCDf.png)<br>@搜搜机器人](https://t.me/sosoo?start=a_7358449352) | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) | [![@华夏搜索](https://i.imgur.com/cYIp5YJ.png)<br>@华夏搜索](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP) |
 |:---:|:---:|:---:|
 | [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7202424896) | [![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_7202424896) |[![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7202424896)  |
 | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwang007) | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupiantg) | [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索❤️](https://t.me/sesou01) |
@@ -39,7 +39,7 @@
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
 *   Telegram 🔥破解频道/群组不允许转发机器人🤖:[https://t.me/msg_get_bot](https://t.me/msg_get_bot?start=R0izrpNB)【频道主必备❗️】
-*   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_7202424896)
+*   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_7358449352)
 *   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_7202424896)
 *   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
@@ -89,7 +89,7 @@
 #### TG中文群组索引机器人bot
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-|SOSO|[@soso](https://t.me/sosoo?start=a_7202424896)|群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
+|SOSO|[@soso](https://t.me/sosoo?start=a_7358449352)|群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
 | 极搜JiSo | [@jiso](https://t.me/jiso?start=a_7202424896)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
 | 极搜JiSou     | [@jisou](https://t.me/jisou2bot?start=a_7202424896)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
 | 华夏搜索机器人     | [@huaxia123_bot](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP)  | TG必备神器，找到您感兴趣的群组、频道和机器人！ |
