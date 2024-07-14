@@ -37,6 +37,7 @@
 
 ### 推荐
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
+*   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
 *   Telegram 🔥破解频道/群组不允许转发机器人🤖:[https://t.me/msg_get_bot](https://t.me/msg_get_bot?start=R0izrpNB)【频道主必备❗️】
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_7358449352)
