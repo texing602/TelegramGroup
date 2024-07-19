@@ -41,7 +41,6 @@
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
-*   Telegram 🔥破解频道/群组不允许转发机器人🤖:[https://t.me/msg_get_bot](https://t.me/msg_get_bot?start=R0izrpNB)【频道主必备❗️】
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_7358449352)
 *   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_7202424896)
@@ -63,6 +62,16 @@
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
+
+### 机器人搭建 [搭建联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+
+- 自动上传脚本：50U(源码+搭建)
+
+- 破解频道/群组不允许转发内容：100U(源码+搭建)
+
+- 自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：200U(源码+搭建)
+
+
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
