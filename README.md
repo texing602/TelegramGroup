@@ -1769,8 +1769,6 @@
 *   内涵段子:[https://t.me/duanzitg](https://t.me/duanzitg)
 *   内涵段子 - 皮皮虾:[https://t.me/bolepin10](https://t.me/bolepin10)
 *   每日沙雕墙:[https://t.me/woshadiao](https://t.me/woshadiao)
-*   吃瓜大佬:[https://t.me/chiguadalao](https://t.me/chiguadalao)
-*   吃瓜中心:[https://t.me/chigua91](https://t.me/chigua91)
 *   糗事百科:[https://t.me/qiushibaike](https://t.me/qiushibaike)
 *   句子迷:[https://t.me/kuaikanmanhua](https://t.me/kuaikanmanhua)
 *   PUSH 科学快讯:[https://t.me/pushings](https://t.me/pushings)
