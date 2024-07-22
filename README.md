@@ -12,13 +12,15 @@
 
 ❗️所有群组和机器人均整理出自网络，侵权请联系删除❗️
 
-</div>
+点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
+(泰达币Tether)**,数量有限先到先得
 
+</div>
 
 | [![@搜搜机器人](https://i.imgur.com/uTMZCDf.png)<br>@搜搜机器人](https://t.me/sosoo?start=a_7358449352) | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) | [![@华夏搜索](https://i.imgur.com/cYIp5YJ.png)<br>@华夏搜索](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP) |
 |:---:|:---:|:---:|
 | [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7202424896) | [![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_7202424896) |[![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7202424896)  |
-| [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwang007) | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqi1) | [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索❤️](https://t.me/sesou01) |
+| [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangbots) | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianccav) | [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sssoubot) |
 
 
 
@@ -39,7 +41,6 @@
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
-*   Telegram 🔥破解频道/群组不允许转发机器人🤖:[https://t.me/msg_get_bot](https://t.me/msg_get_bot?start=R0izrpNB)【频道主必备❗️】
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_7358449352)
 *   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_7202424896)
 *   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_7202424896)
@@ -47,11 +48,11 @@
 *   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)
 *   Telegram 🔥华夏索引🤖:[https://huaxia123_bot](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP)
 *   Telegram 🔥神马搜索🤖:[https://smss](https://t.me/smss?start=spread_7202424896)
-*   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesou01](https://t.me/sesou01)
+*   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesouccav](https://t.me/sssoubot)
 *   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
-*   Telegram 🥷暗网搜索🔍:[https://t.me/anwangsearch](https://t.me/anwang007)
-*   Telegram 🔥搜片神器🎥:[https://t.me/soupianshenqi1](https://t.me/soupianshenqi1)
+*   Telegram 🥷暗网搜索🔍:[https://t.me/anwangbots](https://t.me/anwangbots)
+*   Telegram 🔥搜片神器🎥:[https://t.me/soupianccav](https://t.me/soupianccav)
 *   Telegram 🔥网盘资源🔥电影🔥视频:[https://t.me/sousou200000](https://t.me/sousou200000)
 *   Telegram 🔥20万人Telegram中文社群:[https://t.me/tgcnchat](https://t.me/tgcnchat)
 *   Telegram 🔥20万人搜搜群:[https://t.me/sobot1024](https://t.me/sobot1024)
@@ -61,6 +62,18 @@
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
+
+### 机器人搭建 [搭建联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+
+- 自动上传脚本：50U(源码+搭建)
+
+- 破解频道/群组不允许转发内容：100U(源码+搭建)
+
+- 自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：200U(源码+搭建)
+
+### 出搜索群[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+
+- 报价：日收益*80（100%活人真人）
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
@@ -81,6 +94,7 @@
 
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
+| 起点交易机器人      | [@qdbot](https://t.me/qdbot?start=invite_533296)       |网络骗子太多，需要担保平台，保证双方利益的交易机器人 |
 | 创建自己的机器人      | [@BotFather](https://t.me/BotFather)       |可以创建和管理专属机器人的地方，开发者会获得一个API令牌，用于控制机器人并接入Telegram API  |
 | 群管理机器人      | [@GroupHelpBot](https://t.me/GroupHelpBot)       |根据自己群组的需要设定一系列的自动化内容，如欢迎语、跳转到社媒账号或独立站、删除信息、警告用户等  |
 | 长消息杀手   | [@LongMessageKillerBot](https://t.me/LongMessageKillerBot)        | 最近长消息炸群很多，使用这个长消息杀手机器人可以防止炸群  |
@@ -1758,8 +1772,6 @@
 *   内涵段子:[https://t.me/duanzitg](https://t.me/duanzitg)
 *   内涵段子 - 皮皮虾:[https://t.me/bolepin10](https://t.me/bolepin10)
 *   每日沙雕墙:[https://t.me/woshadiao](https://t.me/woshadiao)
-*   吃瓜大佬:[https://t.me/chiguadalao](https://t.me/chiguadalao)
-*   吃瓜中心:[https://t.me/chigua91](https://t.me/chigua91)
 *   糗事百科:[https://t.me/qiushibaike](https://t.me/qiushibaike)
 *   句子迷:[https://t.me/kuaikanmanhua](https://t.me/kuaikanmanhua)
 *   PUSH 科学快讯:[https://t.me/pushings](https://t.me/pushings)
