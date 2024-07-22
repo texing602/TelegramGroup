@@ -1720,7 +1720,7 @@
 *   🅻ihaiba 资源羊毛分享🍭:[https://t.me/lihaiba](https://t.me/lihaiba)
 *   布道场:[https://t.me/monk_dust_channel](https://t.me/monk_dust_channel)
 *   频道🏆资源福利分享:[https://t.me/freemorebest](https://t.me/freemorebest)
-*   全网福利收集:[https://t.me/FuliList](https://t.me/FuliList)
+*   推特|OnlyFans女菩萨:[https://t.me/xnvpux](https://t.me/xnvpux)
 *   Google Play 限免信息:[https://t.me/playsales](https://t.me/playsales)
 *   Discovery 探索频道:[https://t.me/tele_event_share](https://t.me/tele_event_share)
 *   扫地僧笔记:[https://t.me/lover_links](https://t.me/lover_links)
