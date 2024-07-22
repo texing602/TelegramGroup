@@ -12,6 +12,8 @@
 
 ❗️所有群组和机器人均整理出自网络，侵权请联系删除❗️
 
+❗️玩TG一定要管好自己的钱包，别轻易上骗子的当❗️
+
 点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether)**,数量有限先到先得
 
