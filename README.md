@@ -12,8 +12,6 @@
 
 ❗️所有群组和机器人均整理出自网络，侵权请联系删除❗️
 
-❗️玩TG一定要管好自己的钱包，别轻易上骗子的当❗️
-
 点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether)**,数量有限先到先得
 
@@ -40,8 +38,6 @@
 
 
 ### 推荐
-*   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
-*   Telegram ❤️男欢女爱❤️:[https://t.me/+5mnw2i8nqjIyOTNl](https://t.me/+5mnw2i8nqjIyOTNl)
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
@@ -84,6 +80,8 @@
 | :---        |    :----:   |          :--- |
 | wallet       |   [@wallet](https://t.me/wallet)  | Telegram官方钱包，支持比特币、USDT和TON的应用内支付|
 | okpay      | [@OkayPayBot](https://t.me/OkayPayBot?start=creditCardInvite--7202424896)       |可用于店租（Amazon、Shopify、Shope等）、广告（Facebook、Google等）、云服务、游戏、开发者应用、海淘购物等全场景支付。|
+
+### 电报真人粉:1000人/4000元[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
 
 ### 交易所提币
 | 名字     | 链接 | 功能描述     |
@@ -1572,6 +1570,7 @@
 
 ###### 媒体[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%AA%92%E4%BD%93)
 
+*   众联数据:[https://t.me/shuju2020](https://t.me/shuju2020)
 *   Telegram 中文 NEWS:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
 *   Vultr News:[https://t.me/vultr_news](https://t.me/vultr_news)
 *   Telegram 抽奖活动导航: [https://t.me/Lottery_home](https://t.me/Lottery_home)
