@@ -75,13 +75,13 @@
 
 - 报价：日收益*80（100%活人真人）
 
+### 电报真人粉: 1000人/4000元[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
 | wallet       |   [@wallet](https://t.me/wallet)  | Telegram官方钱包，支持比特币、USDT和TON的应用内支付|
 | okpay      | [@OkayPayBot](https://t.me/OkayPayBot?start=creditCardInvite--7202424896)       |可用于店租（Amazon、Shopify、Shope等）、广告（Facebook、Google等）、云服务、游戏、开发者应用、海淘购物等全场景支付。|
-
-### 电报真人粉:1000人/4000元[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
 
 ### 交易所提币
 | 名字     | 链接 | 功能描述     |
