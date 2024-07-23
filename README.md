@@ -110,6 +110,7 @@
 | 极搜JiSo | [@jiso](https://t.me/jiso?start=a_7202424896)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
 | 极搜JiSou     | [@jisou](https://t.me/jisou2bot?start=a_7202424896)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
 | 华夏搜索机器人     | [@huaxia123_bot](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP)  | TG必备神器，找到您感兴趣的群组、频道和机器人！ |
+| ikuaiso     | [@ikuaisobot](https://t.me/ikuaisobot?start=7202424896)  | 帮你找到有趣的群、频道、视频、音乐、电影、新闻！ |
 | aiso搜索机器人     | [@aiso](https://t.me/aiso?start=telegram_7202424896)  | 查找群组、频道、影视、音乐或机器人。  |
 | 神马索引机器人      | [@smss](https://t.me/smss?start=spread_7202424896)       | 神马索引机器人，可以通过关键词查找  |
 | 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=7202424896)        | 帮助您找到感兴趣的群组、频道和机器人！      |
