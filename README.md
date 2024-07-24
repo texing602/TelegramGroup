@@ -20,7 +20,7 @@
 | [![@搜搜机器人](https://i.imgur.com/uTMZCDf.png)<br>@搜搜机器人](https://t.me/sosoo?start=a_7358449352) | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) | [![@华夏搜索](https://i.imgur.com/cYIp5YJ.png)<br>@华夏搜索](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP) |
 |:---:|:---:|:---:|
 | [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7202424896) | [![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_7202424896) |[![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7202424896)  |
-| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianccav) |[![百万人约P](https://i.imgur.com/AtpE8ly.png)<br>百万人约P](https://t.me/+PvIic5ACYV03Y2Rl) |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sssoubot) |
+| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianccav) |[![每日大赛](https://i.imgur.com/CKC8YtG.png)<br>每日大赛](https://t.me/+PvIic5ACYV03Y2Rl) |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sssoubot) |
 
 
 
@@ -50,7 +50,7 @@
 *   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)
 *   Telegram 🔥华夏索引🤖:[https://huaxia123_bot](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP)
 *   Telegram 🔥神马搜索🤖:[https://smss](https://t.me/smss?start=spread_7202424896)
-*   Telegram ❤️百万人约会❤️:[https://t.me/+PvIic5ACYV03Y2Rl](https://t.me/+PvIic5ACYV03Y2Rl)
+*   Telegram ❤️每日大赛❤️:[https://t.me/+PvIic5ACYV03Y2Rl](https://t.me/+PvIic5ACYV03Y2Rl)
 *   Telegram 🥷暗网搜索🔍:[https://t.me/anwangbots](https://t.me/anwangbots)
 *   Telegram 🔥搜片神器🎥:[https://t.me/soupianccav](https://t.me/soupianccav)
 *   Telegram 🔥网盘资源🔥电影🔥视频:[https://t.me/sousou200000](https://t.me/sousou200000)
