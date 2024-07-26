@@ -58,7 +58,6 @@
 *   Telegram 🔥20万人Telegram中文社群:[https://t.me/tgcnchat](https://t.me/tgcnchat)
 *   Telegram 🔥20万人搜搜群:[https://t.me/sobot1024](https://t.me/sobot1024)
 *   Telegram 🔥20万人极搜群:[https://t.me/jisou200000](https://t.me/jisou200000)
-*   Telegram 🔥20万人华夏搜索群:[https://t.me/huaxia20w](https://t.me/huaxia20w)
 *   Telegram 🔥黑料搜索群🔥:[https://t.me/hlsoso](https://t.me/hlsoso)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
