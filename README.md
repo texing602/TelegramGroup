@@ -20,7 +20,7 @@
 | [![@搜搜机器人](https://i.imgur.com/uTMZCDf.png)<br>@搜搜机器人](https://t.me/sosoo?start=a_7358449352) | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) | [![@华夏搜索](https://i.imgur.com/cYIp5YJ.png)<br>@华夏搜索](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP) |
 |:---:|:---:|:---:|
 | [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7202424896) | [![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_7202424896) |[![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7202424896)  |
-| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianccav) |[![小姐姐](https://i.imgur.com/RC6qN3r.png)<br>中文第一个百万订阅频道](https://t.me/+PvIic5ACYV03Y2Rl) |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sssoubot) |
+| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianccav) |[![小姐姐](https://i.imgur.com/RC6qN3r.png)<br>反差婊](https://t.me/+_1dO3JEx0wFkNmYx) |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sssoubot) |
 
 
 
@@ -66,10 +66,7 @@
 
 ### 福利姬|NSFW|成人|AV|Pron [未满18岁请自觉离开]
 *   🔞推特|OnlyFans|女菩萨❤️:[https://t.me/xnvpux](https://t.me/xnvpux)
-*   🎉约炮大赛🎉️:[https://t.me/+PvIic5ACYV03Y2Rl](https://t.me/+PvIic5ACYV03Y2Rl)
-*   约炮地图🔍:[https://t.me/+5mnw2i8nqjIyOTNl](https://t.me/+5mnw2i8nqjIyOTNl)
-*   炮友🌼分享榜:[https://t.me/+Kt9f9FjPl3oyYTE1](https://t.me/+Kt9f9FjPl3oyYTE1)
-*   站街探店🌆大赛:[https://t.me/+_1dO3JEx0wFkNmYx](https://t.me/+_1dO3JEx0wFkNmYx)
+*   🎉反差婊🎉️:[https://t.me/+_1dO3JEx0wFkNmYx](https://t.me/+_1dO3JEx0wFkNmYx)
 
 ### 机器人搭建 [搭建联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
 
