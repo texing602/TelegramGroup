@@ -60,6 +60,7 @@
 *   Telegram 🔥黑料搜索群🔥:[https://t.me/hlsoso](https://t.me/hlsoso)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
+*   🎥 阿里云盘4K高清资源:[https://t.me/alidriver4k](https://t.me/alidriver4k)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
