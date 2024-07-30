@@ -20,7 +20,7 @@
 | [![@搜搜机器人](https://i.imgur.com/uTMZCDf.png)<br>@搜搜机器人](https://t.me/sosoo?start=a_7358449352) | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) | [![@华夏搜索](https://i.imgur.com/cYIp5YJ.png)<br>@华夏搜索](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP) |
 |:---:|:---:|:---:|
 | [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7202424896) | [![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_7202424896) |[![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7202424896)  |
-| [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangbots) | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianccav) | [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sssoubot) |
+| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianccav) |[![小姐姐](https://i.imgur.com/RC6qN3r.png)<br>反差婊](https://t.me/+_1dO3JEx0wFkNmYx) |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sssoubot) |
 
 
 
@@ -30,16 +30,16 @@
 
 ### Telegram空投
 
-空投地址:[https://t.me/dogshouse_bot](https://t.me/dogshouse_bot/join?startapp=MAYhBrmaSaeH32s9jOXfgA)
-
-空投数量根据账号活跃度和年份决定，场外价格0.3U/1个！我一下子撸了5123个，你们呢？
-
-<img src="https://i.imgur.com/7G6cVWc.png" width="250">
+电报💰dogs空投地址:[https://t.me/dogshouse_bot](https://t.me/dogshouse_bot/join?startapp=MAYhBrmaSaeH32s9jOXfgA) 空投数量根据账号活跃度和年份决定
 
 
 ### 推荐
+*   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
+*   Telegram 🔥哆啦A梦软件App|VPN破解📱:[https://t.me/dlamapp](https://t.me/dlamapp)
+*   Telegram 🔥曝光集中营🔥:[https://t.me/bgjzy](https://t.me/bgjzy)
+*   Telegram 👱‍♂️北美换妻俱乐部👱‍♀️[https://t.me/wifeswapna](https://t.me/wifeswapna)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_7358449352)
 *   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_7202424896)
@@ -55,13 +55,21 @@
 *   Telegram 🔥搜片神器🎥:[https://t.me/soupianccav](https://t.me/soupianccav)
 *   Telegram 🔥网盘资源🔥电影🔥视频:[https://t.me/sousou200000](https://t.me/sousou200000)
 *   Telegram 🔥20万人Telegram中文社群:[https://t.me/tgcnchat](https://t.me/tgcnchat)
-*   Telegram 🔥20万人搜搜群:[https://t.me/sobot1024](https://t.me/sobot1024)
+*   Telegram 🔥20万人搜搜群:[https://t.me/sousou200000](https://t.me/sousou200000)
 *   Telegram 🔥20万人极搜群:[https://t.me/jisou200000](https://t.me/jisou200000)
-*   Telegram 🔥20万人华夏搜索群:[https://t.me/huaxia20w](https://t.me/huaxia20w)
+*   Telegram 🔥黑料搜索群🔥:[https://t.me/hlsoso](https://t.me/hlsoso)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
+*   🎥 阿里云盘4K高清资源:[https://t.me/alidriver4k](https://t.me/alidriver4k)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
+
+### 福利姬|NSFW|成人|AV|Pron [未满18岁请自觉离开]
+*   🔞推特|OnlyFans|女菩萨❤️:[https://t.me/xnvpux](https://t.me/xnvpux)
+*   Telegram 👱‍♂️北美换妻俱乐部👱‍♀️[https://t.me/wifeswapna](https://t.me/wifeswapna)
+*   🎉反差婊🎉️:[https://t.me/+_1dO3JEx0wFkNmYx](https://t.me/+_1dO3JEx0wFkNmYx)
+*   🌼约炮搭讪👩🏻大赛:[https://t.me/+Ud4ophhdF4szYzcx](https://t.me/+Ud4ophhdF4szYzcx)
+*   🌆直播在线🎥 :[https://t.me/+bcpRyCVyXrQ0NTM5](https://t.me/+bcpRyCVyXrQ0NTM5)
 
 ### 机器人搭建 [搭建联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
 
@@ -74,6 +82,14 @@
 ### 出搜索群[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
 
 - 报价：日收益*80（100%活人真人）
+
+### 电报真人粉: 1000人/4000元[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+
+### 会员机器人
+| 名字     | 链接 | 功能描述     |
+| :---        |    :----:   |          :--- |
+| 会员机器人①       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
+| 会员机器人②      | [@kthuiyuan_bot](https://t.me/@kthuiyuan_bot)       |自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
@@ -108,6 +124,7 @@
 | 极搜JiSo | [@jiso](https://t.me/jiso?start=a_7202424896)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
 | 极搜JiSou     | [@jisou](https://t.me/jisou2bot?start=a_7202424896)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
 | 华夏搜索机器人     | [@huaxia123_bot](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP)  | TG必备神器，找到您感兴趣的群组、频道和机器人！ |
+| ikuaiso     | [@ikuaisobot](https://t.me/ikuaisobot?start=7202424896)  | 帮你找到有趣的群、频道、视频、音乐、电影、新闻！ |
 | aiso搜索机器人     | [@aiso](https://t.me/aiso?start=telegram_7202424896)  | 查找群组、频道、影视、音乐或机器人。  |
 | 神马索引机器人      | [@smss](https://t.me/smss?start=spread_7202424896)       | 神马索引机器人，可以通过关键词查找  |
 | 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=7202424896)        | 帮助您找到感兴趣的群组、频道和机器人！      |
@@ -223,7 +240,12 @@
 - [Telegram Bot：@BotsArchiveBot](https://t.me/BotsArchiveBot)
 - [Search Telegram Bots](https://botlist.infotelbot.com/) 一个按类型查找电报机器人网站
 
-
+### 福利姬|NSFW|成人|AV|Pron [未满18岁请自觉离开]
+*   🔞推特|OnlyFans|女菩萨❤️:[https://t.me/xnvpux](https://t.me/xnvpux)
+*   🎉约炮大赛🎉️:[https://t.me/+PvIic5ACYV03Y2Rl](https://t.me/+PvIic5ACYV03Y2Rl)
+*   约炮地图🔍:[https://t.me/+5mnw2i8nqjIyOTNl](https://t.me/+5mnw2i8nqjIyOTNl)
+*   炮友🌼分享榜:[https://t.me/+Kt9f9FjPl3oyYTE1](https://t.me/+Kt9f9FjPl3oyYTE1)
+*   站街探店🌆大赛:[https://t.me/+_1dO3JEx0wFkNmYx](https://t.me/+_1dO3JEx0wFkNmYx)
 
 ### 群组 Group[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BE%A4%E7%BB%84-group)
 
@@ -1568,6 +1590,7 @@
 
 ###### 媒体[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%AA%92%E4%BD%93)
 
+*   众联数据:[https://t.me/shuju2020](https://t.me/shuju2020)
 *   Telegram 中文 NEWS:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
 *   Vultr News:[https://t.me/vultr_news](https://t.me/vultr_news)
 *   Telegram 抽奖活动导航: [https://t.me/Lottery_home](https://t.me/Lottery_home)
@@ -1719,7 +1742,7 @@
 *   🅻ihaiba 资源羊毛分享🍭:[https://t.me/lihaiba](https://t.me/lihaiba)
 *   布道场:[https://t.me/monk_dust_channel](https://t.me/monk_dust_channel)
 *   频道🏆资源福利分享:[https://t.me/freemorebest](https://t.me/freemorebest)
-*   全网福利收集:[https://t.me/FuliList](https://t.me/FuliList)
+*   推特|OnlyFans女菩萨:[https://t.me/xnvpux](https://t.me/xnvpux)
 *   Google Play 限免信息:[https://t.me/playsales](https://t.me/playsales)
 *   Discovery 探索频道:[https://t.me/tele_event_share](https://t.me/tele_event_share)
 *   扫地僧笔记:[https://t.me/lover_links](https://t.me/lover_links)
