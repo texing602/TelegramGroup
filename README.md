@@ -12,6 +12,8 @@
 
 ❗️所有群组和机器人均整理出自网络，侵权请联系删除❗️
 
+❗️存在推广内容，请自行辨认内容真伪，出现问题本人不负责❗
+
 ### 电报真人粉: 1000人/4000元,推荐位挂直到涨粉1000人[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
 
 点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
