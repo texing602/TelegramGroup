@@ -247,11 +247,8 @@
 
 ###### 京豆
 
-*   Faker:[https://t.me/jdscrip](https://t.me/jdscrip)
-*   Aaron-lv :[https://t.me/aaron_scriptsG](https://t.me/aaron_scriptsG)
 *   jdShareCode:[https://t.me/jdShareCode](https://t.me/jdShareCode)
 *   PKC皮卡车:[https://t.me/jdscrip](https://t.me/topstyle996)
-*   互助研究院:[https://t.me/update_help](https://t.me/update_help)
 *   Leeco-雪花社:[https://t.me/xuehuashe](https://t.me/xuehuashe)
 
 ###### 番茄[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
