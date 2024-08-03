@@ -248,7 +248,7 @@
 ###### 京豆
 
 *   jdShareCode:[https://t.me/jdShareCode](https://t.me/jdShareCode)
-*   PKC皮卡车:[https://t.me/jdscrip](https://t.me/topstyle996)
+*   PKC皮卡车:[https://t.me/topstyle996](https://t.me/topstyle996)
 *   Leeco-雪花社:[https://t.me/xuehuashe](https://t.me/xuehuashe)
 
 ###### 番茄[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
