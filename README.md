@@ -68,12 +68,6 @@
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
-### 福利姬|NSFW|成人|AV|Pron [未满18岁请自觉离开]
-*   🔞推特|OnlyFans|女菩萨❤️:[https://t.me/xnvpux](https://t.me/xnvpux)
-*   ❤️色色搜索🔥NSFW:[https://t.me/sesouccav](https://t.me/sssoubot)
-*   ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
-*   🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
-
 ### 机器人搭建 [搭建联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
 
 - 自动上传脚本：50U(源码+搭建)
