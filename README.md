@@ -16,7 +16,7 @@
 
 ### 电报真人粉: 1000人/4000元,推荐位挂直到涨粉1000人[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
 
-点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
+电报**中文用户名**，请点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether)**,数量有限先到先得
 
 </div>
