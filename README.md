@@ -12,15 +12,19 @@
 
 ❗️所有群组和机器人均整理出自网络，侵权请联系删除❗️
 
-点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
+❗️存在推广内容，请自行辨认内容真伪，出现问题本人不负责❗
+
+### 电报真人粉: 1000人/4000元,推荐位挂直到涨粉1000人[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+
+电报**❗️中文昵称❗️**，请点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether)**,数量有限先到先得
 
 </div>
 
-| [![@搜搜机器人](https://i.imgur.com/uTMZCDf.png)<br>@搜搜机器人](https://t.me/sosoo?start=a_7358449352) | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) | [![@华夏搜索](https://i.imgur.com/cYIp5YJ.png)<br>@华夏搜索](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP) |
+| [![@搜搜机器人](https://i.imgur.com/uTMZCDf.png)<br>@搜搜机器人](https://t.me/sosoo?start=a_7358449352) |  [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7202424896) | [![@华夏搜索](https://i.imgur.com/cYIp5YJ.png)<br>@华夏搜索](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP) |
 |:---:|:---:|:---:|
-| [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7202424896) | [![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_7202424896) |[![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7202424896)  |
-| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianccav) |[![小姐姐](https://i.imgur.com/RC6qN3r.png)<br>反差婊](https://t.me/+_1dO3JEx0wFkNmYx) |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sssoubot) |
+| [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7202424896) | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) |[![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_7202424896)|
+| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianccav)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesouccav) | [![黑料搜索](https://i.imgur.com/pSRMtxh.png)<br>黑料搜索](https://t.me/hlsoso)|
 
 
 
@@ -48,10 +52,10 @@
 *   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)
 *   Telegram 🔥华夏索引🤖:[https://huaxia123_bot](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP)
 *   Telegram 🔥神马搜索🤖:[https://smss](https://t.me/smss?start=spread_7202424896)
-*   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesouccav](https://t.me/sssoubot)
+*   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesouccav](https://t.me/sesouccav)
 *   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
-*   Telegram 🥷暗网搜索🔍:[https://t.me/anwangbots](https://t.me/anwangbots)
+*   Telegram 🥷暗网搜索🔍:[https://t.me/anwang007](https://t.me/anwang007)
 *   Telegram 🔥搜片神器🎥:[https://t.me/soupianccav](https://t.me/soupianccav)
 *   Telegram 🔥网盘资源🔥电影🔥视频:[https://t.me/sousou200000](https://t.me/sousou200000)
 *   Telegram 🔥20万人Telegram中文社群:[https://t.me/tgcnchat](https://t.me/tgcnchat)
@@ -64,20 +68,13 @@
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
-### 福利姬|NSFW|成人|AV|Pron [未满18岁请自觉离开]
-*   🔞推特|OnlyFans|女菩萨❤️:[https://t.me/xnvpux](https://t.me/xnvpux)
-*   Telegram 👱‍♂️北美换妻俱乐部👱‍♀️[https://t.me/wifeswapna](https://t.me/wifeswapna)
-*   🎉反差婊🎉️:[https://t.me/+_1dO3JEx0wFkNmYx](https://t.me/+_1dO3JEx0wFkNmYx)
-*   🌼约炮搭讪👩🏻大赛:[https://t.me/+Ud4ophhdF4szYzcx](https://t.me/+Ud4ophhdF4szYzcx)
-*   🌆直播在线🎥 :[https://t.me/+bcpRyCVyXrQ0NTM5](https://t.me/+bcpRyCVyXrQ0NTM5)
-
 ### 机器人搭建 [搭建联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
 
 - 自动上传脚本：50U(源码+搭建)
 
-- 破解频道/群组不允许转发内容：100U(源码+搭建)
+- 破解频道/群组不允许转发内容：15U/月
 
-- 自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：200U(源码+搭建)
+- 自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：100U(源码+搭建)
 
 ### 出搜索群[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
 
@@ -240,22 +237,12 @@
 - [Telegram Bot：@BotsArchiveBot](https://t.me/BotsArchiveBot)
 - [Search Telegram Bots](https://botlist.infotelbot.com/) 一个按类型查找电报机器人网站
 
-### 福利姬|NSFW|成人|AV|Pron [未满18岁请自觉离开]
-*   🔞推特|OnlyFans|女菩萨❤️:[https://t.me/xnvpux](https://t.me/xnvpux)
-*   🎉约炮大赛🎉️:[https://t.me/+PvIic5ACYV03Y2Rl](https://t.me/+PvIic5ACYV03Y2Rl)
-*   约炮地图🔍:[https://t.me/+5mnw2i8nqjIyOTNl](https://t.me/+5mnw2i8nqjIyOTNl)
-*   炮友🌼分享榜:[https://t.me/+Kt9f9FjPl3oyYTE1](https://t.me/+Kt9f9FjPl3oyYTE1)
-*   站街探店🌆大赛:[https://t.me/+_1dO3JEx0wFkNmYx](https://t.me/+_1dO3JEx0wFkNmYx)
-
 ### 群组 Group[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BE%A4%E7%BB%84-group)
 
 ###### 京豆
 
-*   Faker:[https://t.me/jdscrip](https://t.me/jdscrip)
-*   Aaron-lv :[https://t.me/aaron_scriptsG](https://t.me/aaron_scriptsG)
 *   jdShareCode:[https://t.me/jdShareCode](https://t.me/jdShareCode)
-*   PKC皮卡车:[https://t.me/jdscrip](https://t.me/topstyle996)
-*   互助研究院:[https://t.me/update_help](https://t.me/update_help)
+*   PKC皮卡车:[https://t.me/topstyle996](https://t.me/topstyle996)
 *   Leeco-雪花社:[https://t.me/xuehuashe](https://t.me/xuehuashe)
 
 ###### 番茄[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
