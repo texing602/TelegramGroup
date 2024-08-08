@@ -38,6 +38,7 @@
 
 
 ### 推荐
+*   Telegram 🔥数据查询🔥:[https://t.me/shuju2020](https://t.me/shuju2020)
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
