@@ -30,7 +30,7 @@
 
 </table>
 
-### 10000+Telegram群组、频道、机器人导航页面：[https://telegramchannels.github.io](https://telegramchannels.github.io/)
+### 瀑布流Telegram群组频道导航页面：[https://telegramchannels.github.io](https://telegramchannels.github.io/)
 
 ### Telegram空投
 
