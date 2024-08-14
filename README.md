@@ -1,7 +1,7 @@
 <!--
  * @Description:
  * @Author: itgoyo
- * @E-mail: itgoyo@gmail.com
+ * @E-mail: @sd_msgbot
  * @Github: itgoyo
 -->
 ## 声明
@@ -14,7 +14,7 @@
 
 ❗️存在推广内容，请自行辨认内容真伪，出现问题本人不负责❗
 
-### 电报真人粉: 1000人/4000元,推荐位挂直到涨粉1000人[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+### 电报真人粉: 1000人/4000元,推荐位挂直到涨粉1000人[有需要联系双向机器人:@sd_msgbot](https://t.me/sd_msgbot)
 
 电报**❗️中文昵称❗️**，请点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether)**,数量有限先到先得
@@ -66,7 +66,7 @@
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
-### 机器人搭建 [搭建联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+### 机器人搭建 [搭建联系:@sd_msgbot](https://t.me/sd_msgbot)
 
 - 自动上传脚本：50U(源码+搭建)
 
@@ -74,11 +74,11 @@
 
 - 自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：100U(源码+搭建)
 
-### 出搜索群[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+### 出搜索群[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
 
 - 报价：日收益*80（100%活人真人）
 
-### 电报真人粉: 1000人/4000元[有需要联系:itgoyo@gmail.com](mailto:itgoyo@gmail.com)
+### 电报真人粉: 1000人/4000元[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
 
 ### 会员机器人
 | 名字     | 链接 | 功能描述     |
