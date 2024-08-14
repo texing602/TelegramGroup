@@ -1,8 +1,6 @@
 <!--
  * @Description:
- * @Author: itgoyo
- * @E-mail: @sd_msgbot
- * @Github: itgoyo
+ * @telegram: @sd_msgbot
 -->
 ## 声明
 <div align="center">
