@@ -19,10 +19,10 @@
 
 </div>
 
-| [![@搜搜机器人](https://i.imgur.com/uTMZCDf.png)<br>@搜搜机器人](https://t.me/sosoo?start=a_6294881820) |  [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820) | [![@华夏搜索](https://i.imgur.com/cYIp5YJ.png)<br>@华夏搜索](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP) |
+| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) |  [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820) |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |
 |:---:|:---:|:---:|
-| [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=6294881820) | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |[![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_6294881820)|
-| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupiantg)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesou20w) | [![黑料搜索](https://i.imgur.com/pSRMtxh.png)<br>黑料搜索](https://t.me/hlsoso)|
+| [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7202424896) |  [![@色色机器人](https://i.imgur.com/RC6qN3r.png)<br>@色色机器人](https://t.me/DouYinAppBot?start=a_6294881820) |[![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_6294881820)|
+| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupiantg)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sese20w) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwang007)|
 | [![中文搜索①](https://i.imgur.com/OWV7rdZ.png)<br>中文搜索①](https://t.me/sousou20w)  |  [![中文搜索②](https://i.imgur.com/xn0EiEy.png)<br>中文搜索②](https://t.me/qnssking) | [![中文搜索③](https://i.imgur.com/NakYFVi.png)<br>中文搜索③](https://t.me/jisou20w)|
 
 
@@ -37,20 +37,20 @@
 
 
 ### 推荐
-*   Telegram 🔥数据查询🔥:[https://t.me/shuju2020](https://t.me/shuju2020)
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
+*   Telegram 👱‍♂️北美换妻俱乐部👱‍♀️[https://t.me/wifeswapna](https://t.me/wifeswapna)
 *   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
+*   Telegram 🔥吃瓜吧|吃瓜中心🍉:[https://t.me/chiguabar](https://t.me/chiguabar)
 *   Telegram 🔥哆啦A梦软件App|VPN破解📱:[https://t.me/dlamapp](https://t.me/dlamapp)
 *   Telegram 🔥曝光集中营🔥:[https://t.me/bgjzy](https://t.me/bgjzy)
-*   Telegram 👱‍♂️北美换妻俱乐部👱‍♀️[https://t.me/wifeswapna](https://t.me/wifeswapna)
+*   Telegram 🔥5U供需发布🔥:[https://t.me/gxfb5u](https://t.me/gxfb5u)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_6294881820)
 *   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_6294881820)
 *   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_6294881820)
-*   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=6294881820)
+*   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
 *   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_6294881820)
-*   Telegram 🔥华夏索引🤖:[https://huaxia123_bot](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP)
 *   Telegram 🔥神马搜索🤖:[https://smss](https://t.me/smss?start=spread_6294881820)
 *   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesou20w](https://t.me/sesouccav)
 *   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
@@ -68,9 +68,11 @@
 
 - 自动上传脚本：50U(源码+搭建)
 
-- 破解频道/群组不允许转发内容：15U/月
+- 下载频道/群组不允许转发内容：50U(源码+搭建)
 
 - 自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：100U(源码+搭建)
+
+- 其他功能机器人(费用根据功能难易度来收，少则30U多则或几千上万U)
 
 ### 出搜索群[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
 
@@ -82,7 +84,7 @@
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
 | 会员机器人①       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
-| 会员机器人②      | [@kthuiyuan_bot](https://t.me/@kthuiyuan_bot)       |自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
+| 会员机器人②      | [@kthuiyuan_bot](https://t.me/kthuiyuan_bot)       |自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
@@ -94,7 +96,7 @@
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
 | 币安    |   [https://accounts.binance.com](https://accounts.binance.com/zh-CN/register?ref=896983517)   |       币安交易所(持有bnb减免40%手续费)|
-| 欧易OKX    |   [https://www.okx.com](https://www.cnouyi.ninja/join/78810492)   |      欧易交易所(减免20%手续费)|
+| 欧易OKX    |   [https://www.okx.com](https://okx.com/join/78810492)   |      欧易交易所(减免20%手续费)|
 | ByBit    |   [https://www.bybit.com/](https://www.bybit.com/invite?ref=4VLKDMW)   |      ByBit交易所(减免30%手续费)|
 
 ### 常用机器人
