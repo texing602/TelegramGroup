@@ -52,7 +52,7 @@
 *   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
 *   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_6294881820)
 *   Telegram 🔥神马搜索🤖:[https://t.me/smss](https://t.me/smss?start=spread_6294881820)
-*   Telegram 🤖转发小助手🤖:[https://t.me/tgzfxzsbot](https://t.me/tgzfxzsbot)【破解私密频道无法保存转发下载等功能，频道主运营涨粉神器】
+*   Telegram 🤖转发小助手🤖:[https://t.me/tgzfxzsbot](https://t.me/tgzfxzsbot)【破解私密频道无法保存转发下载等功能，涨粉神器】
 *   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesou20w](https://t.me/sesou20w)
 *   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
