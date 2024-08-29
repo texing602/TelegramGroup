@@ -65,6 +65,8 @@
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
+### 多个频道、群组可接置顶和按钮广告 [合作联系:@sd_msgbot](https://t.me/sd_msgbot)
+
 ### 机器人搭建 [搭建联系:@sd_msgbot](https://t.me/sd_msgbot)
 
 - 频道镜像搬运：15U/一个频道(有需要拉[@banyun30u](https://t.me/banyun30u)进群组|频道给管理员权限即可)
