@@ -33,9 +33,12 @@
 
 ### Telegram空投
 
-电报💰dogs空投地址:[https://t.me/dogshouse_bot](https://t.me/dogshouse_bot/join?startapp=MAYhBrmaSaeH32s9jOXfgA) 空投数量根据账号活跃度和年份决定
+电报💰dogs空投地址:[https://t.me/dogshouse_bot](https://t.me/dogshouse_bot/join?startapp=MAYhBrmaSaeH32s9jOXfgA) 空投数量根据账号活跃度和年份决定【本人一个号已薅到70U】
 
 电报💰blum空投地址:[https://t.me/blum/app](https://t.me/blum/app?startapp=ref_upb27LohdV) 空投数量通过游戏和完成任务获取
+
+twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=99653959) 完成社媒任务（签到、关注、转发等）
+
 
 
 ### 推荐
