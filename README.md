@@ -21,8 +21,8 @@
 
 | [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) |  [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820) |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |
 |:---:|:---:|:---:|
-| [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7202424896) |  [![@色色机器人](https://i.imgur.com/RC6qN3r.png)<br>@色色机器人](https://t.me/DouYinAppBot?start=a_6294881820) |[![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_6294881820)|
-| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupiantg)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sese20w) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwang007)|
+| [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7202424896) |  [![@频道转发小助手](https://i.imgur.com/58e8neu.png)<br>@频道转发小助手](https://t.me/tgzfxzsbot) |[![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_7202424896)|
+| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupiantg)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesou20w) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwang007)|
 | [![中文搜索①](https://i.imgur.com/OWV7rdZ.png)<br>中文搜索①](https://t.me/sousou20w)  |  [![中文搜索②](https://i.imgur.com/xn0EiEy.png)<br>中文搜索②](https://t.me/qnssking) | [![中文搜索③](https://i.imgur.com/NakYFVi.png)<br>中文搜索③](https://t.me/jisou20w)|
 
 
@@ -34,6 +34,8 @@
 ### Telegram空投
 
 电报💰dogs空投地址:[https://t.me/dogshouse_bot](https://t.me/dogshouse_bot/join?startapp=MAYhBrmaSaeH32s9jOXfgA) 空投数量根据账号活跃度和年份决定
+
+电报💰blum空投地址:[https://t.me/blum/app](https://t.me/blum/app?startapp=ref_upb27LohdV) 空投数量通过游戏和完成任务获取
 
 
 ### 推荐
@@ -51,8 +53,9 @@
 *   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_6294881820)
 *   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
 *   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_6294881820)
-*   Telegram 🔥神马搜索🤖:[https://smss](https://t.me/smss?start=spread_6294881820)
-*   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesou20w](https://t.me/sesouccav)
+*   Telegram 🔥神马搜索🤖:[https://t.me/smss](https://t.me/smss?start=spread_6294881820)
+*   Telegram 🤖转发小助手🤖:[https://t.me/tgzfxzsbot](https://t.me/tgzfxzsbot)【破解私密频道无法保存转发下载等功能，涨粉神器】
+*   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesou20w](https://t.me/sesou20w)
 *   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
 *   Telegram 🥷暗网搜索🔍:[https://t.me/anwang007](https://t.me/anwang007)
@@ -64,17 +67,23 @@
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
+### 多个频道、群组可接置顶和按钮广告 [合作联系:@sd_msgbot](https://t.me/sd_msgbot)
+
 ### 机器人搭建 [搭建联系:@sd_msgbot](https://t.me/sd_msgbot)
 
-- 自动上传脚本：50U(源码+搭建)
+- 频道镜像搬运：15U/一个频道(有需要拉[@banyun30u](https://t.me/banyun30u)进群组|频道给管理员权限即可)
 
-- 下载频道/群组不允许转发内容：50U(源码+搭建)
+- 转发其他群组、频道资源到自己群组、频道容机器人：30U/月(需要给我你的tg用户名，我机器人后台给权限)
 
-- 自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：100U(源码+搭建)
+- 破解私密频道无法保存转发下载机器人,可强制设置关注某频道后才能使用：50U(源码+搭建)
+
+- 自动上传视频到频道的脚本：50U(源码+搭建)
+
+- 自动搬运别人频道机器人(文末自定义文案、过滤特定广告、关键字替换)：100U(源码+搭建)
 
 - 其他功能机器人(费用根据功能难易度来收，少则30U多则或几千上万U)
 
-### 出搜索群[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
+### 出售搜索群，稳定每天2U、3U、5U等[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
 
 - 报价：日收益*80（100%活人真人）
 
