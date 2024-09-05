@@ -42,7 +42,7 @@
 
 twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=99653959) 完成社媒任务（签到、关注、转发等）
 
-### 刷粉/拉人/引流/僵尸粉/上粉/粉丝: [https://cgyinliu.com](https://cgyinliu.com/ref/ga375)
+### 广告：多个群组频道按钮广告：600U/月，[有需要联系双向机器人:@sd_msgbot](https://t.me/sd_msgbot)
 
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
