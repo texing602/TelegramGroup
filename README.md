@@ -54,7 +54,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Telegram 🤖转发小助手🤖:[https://t.me/tgzfxzsbot](https://t.me/tgzfxzsbot)【破解私密频道无法保存转发下载等功能，涨粉神器】
 *   Telegram 🔞反差资源搜索🔥:[https://t.me/fcsousuo](https://t.me/fcsousuo)
 *   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesou20w](https://t.me/sesou20w)
-*   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
+*   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sesesousuoba)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
 *   Telegram 🥷暗网搜索🔍:[https://t.me/anwangbots](https://t.me/anwangbots)
 *   Telegram 🔥搜片神器🎥:[https://t.me/soupiantg](https://t.me/soupiantg)
