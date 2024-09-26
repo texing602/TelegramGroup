@@ -74,6 +74,16 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
+### 机器人搭建:[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
+
+自动上传脚本：50U(源码+搭建)
+
+破解频道/群组不允许转发内容：50U(源码+搭建)
+
+自动转发频道机器人(自动搬运别人频道内容到自己频道)：100U(源码+搭建)
+
+自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)
+
 ### 出售搜索群，稳定每天2U、3U、5U等[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
 
 - 报价：日收益*80（100%活人真人）
