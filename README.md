@@ -92,6 +92,8 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 ### 电报真人粉: 1000人/4000元[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
 
+###  本人以仓库起誓，接Telegram担保交易，手续费双方各为2%【Telegram上骗子太多、假的担保业务员也太多，为保障双方利益可以找我作为中介】
+
 ### 会员机器人
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
