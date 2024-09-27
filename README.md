@@ -82,7 +82,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 破解频道/群组不允许转发内容：50U(源码+搭建)
 
-搬运一个频道全部内容到你自己的频道(10U/频道)：[@banyun30u](https://t.me/banyun30u)
+搬运一个频道全部内容到你自己的频道(10U/频道,找我开权限[@sd_msgbot](https://t.me/sd_msgbot))：转发机器人[@pdgbbot](https://t.me/pdgbbot)
 
 自动转发频道机器人(自动搬运别人频道内容到自己频道)：100U(源码+搭建)
 
