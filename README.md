@@ -17,15 +17,15 @@
 电报**❗️中文昵称❗️**，请点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether)**,数量有限先到先得
 
+### 商务合作：Banner广告位 200U/月，推荐位 50U/月，永久推荐位1000U
+
 </div>
 
 | [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) |  [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820) |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |
 |:---:|:---:|:---:|
 | [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715) |  [![@频道转发小助手](https://i.imgur.com/58e8neu.png)<br>@频道转发小助手](https://t.me/tgzfxzsbot) |[![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_7202424896)|
-| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqi1)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesequn20w) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsearchbot)|
+| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupiansoso)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesesesousuo) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangdarknet)|
 | [![中文搜索①](https://i.imgur.com/OWV7rdZ.png)<br>中文搜索①](https://t.me/sousuo20w)  |  [![中文搜索②](https://i.imgur.com/xn0EiEy.png)<br>中文搜索②](https://t.me/qnssking) |[![中文搜索③](https://i.imgur.com/SA6Oq0p.png)<br>资源搜索](https://t.me/resource4)|
-
-
 
 </table>
 
@@ -41,8 +41,6 @@
 电报💰blum空投地址:[https://t.me/blum/app](https://t.me/blum/app?startapp=ref_upb27LohdV) 空投数量通过游戏和完成任务获取
 
 twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=99653959) 完成社媒任务（签到、关注、转发等）
-
-### 广告：多个群组频道按钮广告：600U/月，[有需要联系双向机器人:@sd_msgbot](https://t.me/sd_msgbot)
 
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
@@ -76,11 +74,27 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
+### 机器人搭建:[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
+
+自动上传脚本：50U(源码+搭建)
+
+破解频道/群组不允许转发内容：50U(源码+搭建)
+
+搬运一个频道全部内容到你自己的频道(10U/频道,找我开权限[@sd_msgbot](https://t.me/sd_msgbot))：转发机器人[@pdgbbot](https://t.me/pdgbbot)
+
+也可以跑在我的机器人上:20U/月【最多支持10个频道，超出重新算】
+
+自动转发频道机器人(自动搬运别人频道内容到自己频道)：100U(源码+搭建)
+
+自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)
+
 ### 出售搜索群，稳定每天2U、3U、5U等[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
 
 - 报价：日收益*80（100%活人真人）
 
 ### 电报真人粉: 1000人/4000元[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
+
+###  本人以仓库起誓，接Telegram担保交易，手续费双方各为2%【Telegram上骗子太多、假的担保业务员也太多，为保障双方利益可以找我作为中介】
 
 ### 会员机器人
 | 名字     | 链接 | 功能描述     |
