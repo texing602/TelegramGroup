@@ -97,11 +97,13 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 ###  本人以仓库起誓，接Telegram担保交易，手续费双方各为2%【Telegram上骗子太多、假的担保业务员也太多，为保障双方利益可以找我作为中介】
 
-### 会员机器人
+### 会员 | 能量租赁机器人
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
 | 会员机器人①       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 | 会员机器人②      | [@kthuiyuan_bot](https://t.me/kthuiyuan_bot)       |自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
+| 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人
+|
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
