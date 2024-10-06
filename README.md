@@ -73,7 +73,6 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
 *   🎥 阿里云盘4K高清资源:[https://t.me/alidriver4k](https://t.me/alidriver4k)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
-*   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
 ### 机器人搭建:[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
 
@@ -89,13 +88,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)
 
-### 出售搜索群，稳定每天2U、3U、5U等[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
-
-- 报价：日收益*80（100%活人真人）
-
-### 电报真人粉: 1000人/4000元[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
-
-###  本人以仓库起誓，接Telegram担保交易，手续费双方各为2%【Telegram上骗子太多、假的担保业务员也太多，为保障双方利益可以找我作为中介】
+修女-频道搬运：[@banyunpindao](https://t.me/banyunpindao)
 
 ### 会员 | 能量租赁机器人
 | 名字     | 链接 | 功能描述     |
