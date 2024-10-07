@@ -83,7 +83,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)
 
-修女-频道搬运：[@banyunpindao](https://t.me/banyunpindao)
+修女频道搬运：[@banyunpindao](https://t.me/banyunpindao)
 
 彩虹群发、强拉、炒群破解版：30U（链接: https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw）
 
