@@ -85,7 +85,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 修女频道搬运：[@banyunpindao](https://t.me/banyunpindao)
 
-彩虹群发、强拉、炒群破解版：30U（链接: https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw）
+彩虹群发、强拉、炒群破解版：30U（链接: https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw ）
 
 ### 会员 | 能量租赁机器人
 | 名字     | 链接 | 功能描述     |
