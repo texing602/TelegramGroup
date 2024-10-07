@@ -89,7 +89,6 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
 | 会员机器人①       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
-| 会员机器人②      | [@kthuiyuan_bot](https://t.me/kthuiyuan_bot)       |自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 | 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人
 
 ### Telegram钱包|虚拟信用卡
