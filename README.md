@@ -8,16 +8,12 @@
 
 ❗️❗️❗️本文内容严禁在中国大陆使用，一切违法后果请自行承担❗️❗️❗️
 
-❗️所有群组和机器人均整理出自网络，侵权请联系删除❗️
-
-❗️存在推广内容，请自行辨认内容真伪，出现问题本人不负责❗
-
 ### 电报真人粉: 1000人/4000元,推荐位挂直到涨粉1000人[有需要联系双向机器人:@sd_msgbot](https://t.me/sd_msgbot)
 
 电报**❗️中文昵称❗️**，请点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether)**,数量有限先到先得
 
-### 商务合作：Banner广告位 200U/月，推荐位 50U/月，永久推荐位1000U
+### 商务合作：Banner广告位 200U/月，推荐位 50U/月，永久推荐位10000U
 
 </div>
 
@@ -46,6 +42,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
 *   🔞推特|女菩萨❤️：[https://t.me/+Kt9f9FjPl3oyYTE1](https://t.me/+Kt9f9FjPl3oyYTE1)
 *   🔞眼镜反差婊❤️：[https://t.me/+33RCsJjiLmhiMzg1](https://t.me/+33RCsJjiLmhiMzg1)
+*   ️👱‍♀️AI去衣服👚：[https://t.me/aishuazibot](https://t.me/aishuazibot?start=Vo8qwJOU)
 *   ️💰前海联盟福利群💰：[https://t.me/+khxzHw7kGRJiYTM0](https://t.me/+khxzHw7kGRJiYTM0)【群里每天抽100份猪脚饭加发言奖励】
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
@@ -60,7 +57,6 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Telegram 🔥全网吃瓜黑料搜索群组🔥:[https://t.me/sousuo91p](https://t.me/sousuo91p)
 *   Telegram 🔥哆啦A梦软件App|VPN破解📱:[https://t.me/dlamapp](https://t.me/dlamapp)
 *   Telegram 🔥曝光集中营🔥:[https://t.me/bgjzy](https://t.me/bgjzy)
-*   Telegram 🔥5U供需发布🔥:[https://t.me/gxfb5u](https://t.me/gxfb5u)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_6294881820)
 *   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_6294881820)
@@ -72,7 +68,6 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
 *   🎥 阿里云盘4K高清资源:[https://t.me/alidriver4k](https://t.me/alidriver4k)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
-*   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
 ### 机器人搭建:[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
 
@@ -88,19 +83,14 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)
 
-### 出售搜索群，稳定每天2U、3U、5U等[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
+修女-频道搬运：[@banyunpindao](https://t.me/banyunpindao)
 
-- 报价：日收益*80（100%活人真人）
-
-### 电报真人粉: 1000人/4000元[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
-
-###  本人以仓库起誓，接Telegram担保交易，手续费双方各为2%【Telegram上骗子太多、假的担保业务员也太多，为保障双方利益可以找我作为中介】
-
-### 会员机器人
+### 会员 | 能量租赁机器人
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
 | 会员机器人①       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 | 会员机器人②      | [@kthuiyuan_bot](https://t.me/kthuiyuan_bot)       |自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
+| 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
