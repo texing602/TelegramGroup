@@ -73,7 +73,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 ### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
 
-自动上传脚本：50U(源码+搭建)
+自动上传脚本：50U(源码+搭建)，效果：[@dysyg](https://t.me/dysyg)
 
 破解频道/群组不允许转发内容：50U(源码+搭建)，效果：[@pdgbbot](https://t.me/pdgbbot)
 
