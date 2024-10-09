@@ -71,21 +71,17 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   🎥 阿里云盘4K高清资源:[https://t.me/alidriver4k](https://t.me/alidriver4k)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 
-### 机器人搭建:[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
+### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
 
 自动上传脚本：50U(源码+搭建)
 
-破解频道/群组不允许转发内容：50U(源码+搭建)
+破解频道/群组不允许转发内容：50U(源码+搭建)，效果：[@pdgbbot](https://t.me/pdgbbot)
 
-搬运一个频道全部内容到你自己的频道(10U/频道,找我开权限[@sd_msgbot](https://t.me/sd_msgbot))：转发机器人[@pdgbbot](https://t.me/pdgbbot)
-
-也可以跑在我的机器人上:20U/月【最多支持10个频道，超出重新算】
+修女频道搬运：[@banyunpindao](https://t.me/banyunpindao)【搬运整个频道10U，监听别的频道同步到自己频道10U/一年，自行联系账号】
 
 自动转发频道机器人(自动搬运别人频道内容到自己频道)：100U(源码+搭建)
 
-自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)
-
-修女频道搬运：[@banyunpindao](https://t.me/banyunpindao)【搬运整个频道10U，监听别的频道同步到自己频道10U/一年，自行联系账号】
+自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)，效果：[@diyichigua](https://t.me/diyichigua)
 
 彩虹群发、强拉、炒群破解版：30U（链接: https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw ）
 
