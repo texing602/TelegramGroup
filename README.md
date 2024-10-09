@@ -89,7 +89,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 彩虹群发、强拉、炒群破解版：30U（链接: https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw ）
 
-### 会员 | 能量租赁机器人
+### 会员 | 能量租赁机器人 【可找我代充36U/年，比机器人要便宜】
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
 | 会员机器人①       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
