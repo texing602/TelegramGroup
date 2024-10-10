@@ -8,7 +8,7 @@
 
 ❗️❗️❗️本文内容严禁在中国大陆使用，一切违法后果请自行承担❗️❗️❗️
 
-### 电报真人粉: 1000人/4000元,推荐位挂直到涨粉1000人[有需要联系双向机器人:@sd_msgbot](https://t.me/sd_msgbot)
+### 电报真人粉: 1000人/4000元,推荐位挂直到涨粉1000人,有需要联系[@商务合作机器人](https://t.me/sd_msgbot)
 
 电报**❗️中文昵称❗️**，请点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether)**,数量有限先到先得
