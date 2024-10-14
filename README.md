@@ -1,6 +1,6 @@
 <!--
  * @Description:
- * @telegram: @sd_msgbot
+ * @telegram: @tghzsx_bot
 -->
 ## 声明
 <div align="center">
@@ -91,7 +91,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 ### 会员 | 能量租赁机器人 【可找我代充36U/年，比机器人要便宜】
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-|  我   |   [@sd_msgbot](https://t.me/sd_msgbot)  | 36U一年 |
+|  我   |   [@tghzsx_bot](https://t.me/tghzsx_bot)  | 36U一年 |
 | 会员机器人       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 | 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人
 
