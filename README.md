@@ -8,7 +8,8 @@
 
 ❗️❗️❗️本文内容严禁在中国大陆使用，一切违法后果请自行承担❗️❗️❗️
 
-### 电报真人粉: 1000人/4000元,推荐位挂直到涨粉1000人[有需要联系双向机器人:@sd_msgbot](https://t.me/sd_msgbot)
+### 电报真人粉: 1000人/4000元,推荐位挂直到涨粉1000人
+商务合作：[sobot1024@gmail.com](mailto:sobot1024@gmail.com)或[@tghzsx_bot](https://t.me/tghzsx_bot)
 
 电报**❗️中文昵称❗️**，请点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether)**,数量有限先到先得
@@ -25,7 +26,9 @@
 
 </table>
 
-### 瀑布流Telegram群组频道导航页面：[https://telegramchannels.github.io](https://telegramchannels.github.io/)
+### 瀑布流Telegram群组频道导航页面：[https://telegramchannels.github.io](https://telegramchannels.github.io)
+
+### 机场VPN导航页面：[https://jichangvpn.github.io](https://jichangvpn.github.io)
 
 ### Telegram空投
 
@@ -40,9 +43,10 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
+*   Telegram 修女搬运频道:[https://t.me/xiunvbanyun](https://t.me/xiunvbanyun)【💰自动搬运别的频道视频和内容，涨粉神器💰】
 *   🔞推特|女菩萨❤️：[https://t.me/+Kt9f9FjPl3oyYTE1](https://t.me/+Kt9f9FjPl3oyYTE1)
 *   🔞眼镜反差婊❤️：[https://t.me/+33RCsJjiLmhiMzg1](https://t.me/+33RCsJjiLmhiMzg1)
-*   ️👱‍♀️AI去衣服👚：[https://t.me/aishuazibot](https://t.me/aishuazibot?start=Vo8qwJOU)
+*   🔞不良少女❤️：[https://t.me/+55GiZrZbg09jMGUx](https://t.me/+55GiZrZbg09jMGUx)
 *   ️💰前海联盟福利群💰：[https://t.me/+khxzHw7kGRJiYTM0](https://t.me/+khxzHw7kGRJiYTM0)【群里每天抽100份猪脚饭加发言奖励】
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
@@ -68,28 +72,27 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
 *   🎥 阿里云盘4K高清资源:[https://t.me/alidriver4k](https://t.me/alidriver4k)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
+*   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 
-### 机器人搭建:[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
+### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
 
-自动上传脚本：50U(源码+搭建)
+自动上传脚本：50U(源码+搭建)，效果：[@dysyg](https://t.me/dysyg)
 
-破解频道/群组不允许转发内容：50U(源码+搭建)
+破解频道/群组不允许转发内容：50U(源码+搭建)，效果：[@pdgbbot](https://t.me/pdgbbot)
 
-搬运一个频道全部内容到你自己的频道(10U/频道,找我开权限[@sd_msgbot](https://t.me/sd_msgbot))：转发机器人[@pdgbbot](https://t.me/pdgbbot)
-
-也可以跑在我的机器人上:20U/月【最多支持10个频道，超出重新算】
+修女频道搬运：[@banyunpindao](https://t.me/banyunpindao)【搬运整个频道10U，监听别的频道同步到自己频道10U/一年，自行联系账号】
 
 自动转发频道机器人(自动搬运别人频道内容到自己频道)：100U(源码+搭建)
 
-自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)
+自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)，效果：[@diyichigua](https://t.me/diyichigua)
 
-修女-频道搬运：[@banyunpindao](https://t.me/banyunpindao)
+彩虹群发、强拉、炒群破解版：30U（链接: https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw ）
 
-### 会员 | 能量租赁机器人
+### 会员 | 能量租赁机器人 【可找我代充36U/年，比机器人要便宜】
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-| 会员机器人①       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
-| 会员机器人②      | [@kthuiyuan_bot](https://t.me/kthuiyuan_bot)       |自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
+|  我   |   [@sd_msgbot](https://t.me/sd_msgbot)  | 36U一年 |
+| 会员机器人       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 | 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人
 
 ### Telegram钱包|虚拟信用卡
