@@ -129,7 +129,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 | 长消息杀手   | [@LongMessageKillerBot](https://t.me/LongMessageKillerBot)        | 最近长消息炸群很多，使用这个长消息杀手机器人可以防止炸群  |
 | 广告杀手   | [@GuangGaoShaShouBot](https://t.me/GuangGaoShaShouBot)        | 本机器人专业封杀中文广告内容以及广告号 |
 |  频道搬运机器人  | [@msg_get_bot](https://t.me/msg_get_bot?start=K86QAr71)        | 破解频道/群组不允许转发机器人,频道主运营利器|
-|  ID查询机器人  | [@username_to_id_bot](https://t.me/username_to_id_bot)        | 查询用户ID、频道ID、群组ID|
+|  ID查询机器人  | [@username_to_id_bot](https://t.me/username_to_id_bot)        | 查询用户ID、频道ID、群组ID |
 |  ID查询机器人  | [@nminfobot](https://t.me/nminfobot)        | 转发一条聊天信息给我，快速查询对方 ID|
 |  短信轰炸机器人  | [@Carll_Bomb_bot](https://t.me/Carll_Bomb_bot?start=7439567495)        | 短信轰炸机器人，这你爱的人送上“祝福”。让你爱的人，“夜不能寐”|
 
@@ -144,7 +144,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 | aiso搜索机器人     | [@aiso](https://t.me/aiso?start=telegram_6294881820)  | 查找群组、频道、影视、音乐或机器人。  |
 | 神马索引机器人      | [@smss](https://t.me/smss?start=spread_6294881820)       | 神马索引机器人，可以通过关键词查找  |
 | 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=6294881820)        | 帮助您找到感兴趣的群组、频道和机器人！      |
-| TON索引     | [TonCnBot](https://t.me/TonCnBot?start=6294881820)       | 帮助您找到感兴趣的群组、频道和机器人！  |
+| TON索引  | [TonCnBot](https://t.me/TonCnBot?start=6294881820)       | 帮助您找到感兴趣的群组、频道和机器人！  |
 
 
 #### 群组抽奖机器人
