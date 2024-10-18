@@ -124,11 +124,13 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 | 群管理机器人      | [@GroupHelpBot](https://t.me/GroupHelpBot)       |根据自己群组的需要设定一系列的自动化内容，如欢迎语、跳转到社媒账号或独立站、删除信息、警告用户等  |
 | 群管理机器人      | [@WeGroupRobot](https://t.me/WeGroupRobot)       |专为管理和优化群组聊天体验而设计。它可以帮助群组管理员简化日常管理任务，提高群组的互动质量 |
 | 双向机器人      | [@LivegramBot](https://t.me/LivegramBot)       |可以免费创建属于自己的双向机器人，解决账号无法主动发起会话的问题  |
+| 按钮机器人      | [@PostBot](https://t.me/PostBot)       | 可以在群组或者频道里面编辑按钮控件，用来挂链接或者打广告的神器 |
 | 查特皮皮鸡      | [@ZUOLUOTV_AI_BOT](https://t.me/ZUOLUOTV_AI_BOT)       |基于OpenAI和 Google Cloud AI Platform 的 Anti-Spam机器人，可以有效过滤文字、图片、贴纸等垃圾广告。 |
 | 长消息杀手   | [@LongMessageKillerBot](https://t.me/LongMessageKillerBot)        | 最近长消息炸群很多，使用这个长消息杀手机器人可以防止炸群  |
 | 广告杀手   | [@GuangGaoShaShouBot](https://t.me/GuangGaoShaShouBot)        | 本机器人专业封杀中文广告内容以及广告号 |
 |  频道搬运机器人  | [@msg_get_bot](https://t.me/msg_get_bot?start=K86QAr71)        | 破解频道/群组不允许转发机器人,频道主运营利器|
 |  ID查询机器人  | [@username_to_id_bot](https://t.me/username_to_id_bot)        | 查询用户ID、频道ID、群组ID|
+|  ID查询机器人  | [@nminfobot](https://t.me/nminfobot)        | 转发一条聊天信息给我，快速查询对方 ID|
 |  短信轰炸机器人  | [@Carll_Bomb_bot](https://t.me/Carll_Bomb_bot?start=7439567495)        | 短信轰炸机器人，这你爱的人送上“祝福”。让你爱的人，“夜不能寐”|
 
 
