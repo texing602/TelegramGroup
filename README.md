@@ -273,6 +273,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 ###### 番茄[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
 
+*   机场VPN导航站:[https://jichangvpn.github.io/](https://jichangvpn.github.io/)
 *   每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Shadowsocks&Clash:[https://t.me/shadowsocks_clash](https://t.me/shadowsocks_clash)
 *   不良林:[https://t.me/buliang00](https://t.me/buliang00)
