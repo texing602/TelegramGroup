@@ -246,6 +246,8 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 | 给管理员发消息      | [@callAdminsBot](https://t.me/callAdminsBot)       | 给管理员发消息  |
 | 黑名单机器人      | [@hexlightning_bot](https://t.me/hexlightning_bot)       | 台灣人自己的黑名單機器人  |
 | 创建临时邮箱机器人   | [@DropmailBot](https://t.me/DropmailBot)        | 临时邮箱顾名思义是个临时的匿名邮箱，可以用来保护个人隐私和防止垃圾邮件      |
+| 创建临时邮箱机器人   | [@RustRssBot](https://t.me/RustRssBot)        | 中文 Telegram RSS 机器人     |
+| 解除频道消息在群组的置顶   | [@areply_bot](https://t.me/areply_bot)        | 自动解除频道消息在群组的同步置顶，附带群组日常维护常用小功能  |
 
 #### 参考资料
 - [BotoStore](https://botostore.com/) 一个专门收录telegram bot的国外网站，过滤了垃圾邮件和成人内容的bot
@@ -390,7 +392,9 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Cuto 壁纸:[https://t.me/joinchat/BC6PtD89sEGgHKR28OtQVA](https://t.me/joinchat/BC6PtD89sEGgHKR28OtQVA)
 *   UpperSoft - 讨论组:[https://t.me/UpperSoftDiscuss](https://t.me/UpperSoftDiscuss)
 *   Mac 玩儿法茶馆:[https://t.me/waerfa](https://t.me/waerfa)
+*   APP喵-阿喵软件资源共享:[https://t.me/appmew](https://t.me/appmew)
 *   软件技术资源共享:[https://t.me/SharedResourcesplus](https://t.me/SharedResourcesplus)
+*   LIHAI 分享:[https://t.me/lihaiba](https://t.me/lihaiba)
 *   TelePlus 官方討論組:[https://t.me/TelePlus_Group](https://t.me/TelePlus_Group)
 *   MK 播放器:[https://t.me/MKPlayerApp](https://t.me/MKPlayerApp)
 *   畅邮（Cymail）电子邮箱客户端:[https://t.me/cyemail](https://t.me/cyemail)
@@ -457,14 +461,18 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   少数派 sspai 社群 非官方:[https://t.me/sspai_group](https://t.me/sspai_group)
 *   iBeta 尝鲜派 官方用户讨论群:[https://t.me/ibetame](https://t.me/ibetame)
 *   库克的后厨 Cook’s Kitchen:[https://t.me/OnlineAppleUserGroup](https://t.me/OnlineAppleUserGroup)
+*   沉浸式翻译讨论:[https://t.me/+rq848Z09nehlOTgx](https://t.me/+rq848Z09nehlOTgx)
 *   科技无国界:[https://t.me/LifeAnaTech](https://t.me/LifeAnaTech)
+*   赚客吧 有奖一起赚:[https://t.me/zuanke8](https://t.me/zuanke8)
 *   Apple Watch 大集合:[https://t.me/apple_watch](https://t.me/apple_watch)
 *   Apple TV+:[https://t.me/AppleTVPlus](https://t.me/AppleTVPlus)
 *   Apple Arcade CN:[https://t.me/applearcadecn](https://t.me/applearcadecn)
 *   Apple 用户社群:[https://t.me/appleusergroup_tg](https://t.me/appleusergroup_tg)
+*   TVBox:[https://t.me/TVbox888](https://t.me/TVbox888)
 *   三星手机交流:[https://t.me/samsung_cn](https://t.me/samsung_cn)
 *   智能手机讨论组:[https://t.me/M_Phone](https://t.me/M_Phone)
 *   小米玩机交流群:[https://t.me/xiaomi6666](https://t.me/xiaomi6666)
+*   飞享一刻｜频道:[https://t.me/w37fhy](https://t.me/w37fhy)
 *   mimi:[https://t.me/Orz_mini](https://t.me/Orz_mini)
 *   みなもと しずか:[https://t.me/Orz_zayu](https://t.me/Orz_zayu)
 *   程序员技术资源分享群 (陈皓 (左耳朵耗子) 创建的群):[https://t.me/joinchat/FwAZpxdwmTHP2W1sPydPAQ](https://t.me/joinchat/FwAZpxdwmTHP2W1sPydPAQ)
@@ -485,7 +493,9 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   电报人:[https://t.me/three001](https://t.me/three001)
 *   Google Drive 无限容量:[https://t.me/google_drive](https://t.me/google_drive)
 *   跳蚤市场 - 科学上网交流等:[http://t.me/PharosMarketShopping](http://t.me/PharosMarketShopping)
+*   普通休闲书籍资源:[http://t.me/bookusefor4](http://t.me/bookusefor4)
 *   读舍 - 享受阅读时光:[https://t.me/shufm](https://t.me/shufm)
+*   写作交流:[https://t.me/writing_discuss](https://t.me/writing_discuss)
 *   iGame 游戏交流群:[https://t.me/gamecn](https://t.me/gamecn)
 *   电影爱好者交流组:[https://t.me/Moviemarket_group](https://t.me/Moviemarket_group)
 *   Emby 终点站:[https://t.me/EmbyPublic](https://t.me/EmbyPublic)
@@ -611,6 +621,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   微基主机讨论组 - 原 50KVM/50VZ:[https://t.me/network50_chat](https://t.me/network50_chat)
 *   Nathosts 主机交流群:[https://t.me/nathosts](https://t.me/nathosts)
 *   利器社群在 TG 上的分支:[http://t.me/fun_makers](http://t.me/fun_makers)
+*   人人影视字幕文件:[http://t.me/yyets_subtitles](http://t.me/yyets_subtitles)
 *   圆角水群:[https://t.me/UoVzCloud](https://t.me/UoVzCloud)
 *   中文独立博客:[https://t.me/indieBlogs](https://t.me/indieBlogs)
 *   黑苹果 osx86 项目中文讨论 / Hackintosh CHN Discussion:[https://t.me/osx86zh](https://t.me/osx86zh)
@@ -818,6 +829,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   沙雕根据地:[https://t.me/shadiaoo](https://t.me/shadiaoo)
 *   ACG 萌:[https://t.me/acg_moe](https://t.me/acg_moe)
 *   WSB 华尔街中文社区:[https://t.me/WSBetsZH](https://t.me/WSBetsZH)
+*   华尔街日报 RSS:[https://t.me/wsj_rss](https://t.me/wsj_rss)
 *   Satoshi Street Bets 中本街社区:[https://t.me/SatoshiStreetBetsZH](https://t.me/SatoshiStreetBetsZH)
 *   tsuPro Talk:[https://t.me/tsuPorn](https://t.me/tsuPorn)
 *   想尽办法看电视:[https://t.me/joinchat/MgUQ3B1apkzq3sqVzTFP0A](https://t.me/joinchat/MgUQ3B1apkzq3sqVzTFP0A)
@@ -1012,6 +1024,8 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 ###### 媒体[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%AA%92%E4%BD%93)
 
 *   Telegram 中文 NEWS:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
+*   阿里云盘发布频道:[https://t.me/Aliyundrive_Share_Channel](https://t.me/Aliyundrive_Share_Channel)
+*   Alist资源频道:[https://t.me/alistshare](https://t.me/alistshare)
 *   科技花（TestFlight）:[https://t.me/TestFlightCN](https://t.me/TestFlightCN)
 *   海龙说:[https://t.me/haotalk](https://t.me/haotalk)
 *   不客观 Not Objective:[https://t.me/notobjective](https://t.me/notobjective)
@@ -1042,6 +1056,8 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   OnePlus™:[https://t.me/OnePlus](https://t.me/OnePlus)
 *   程序员技术资源分享:[https://t.me/gotoshare](https://t.me/gotoshare)
 *   大虾的编程资源库 / 码农 / 程序员资源:[https://t.me/programmingsrchub](https://t.me/programmingsrchub)
+*   每日 AWESOME 观察:[https://t.me/awesomeopensource](https://t.me/awesomeopensource)
+*   每日无数猫:[https://t.me/miaowu](https://t.me/miaowu)
 *   IPN 播客网络:[https://t.me/ipnpodcast](https://t.me/ipnpodcast)
 *   《無次元》博客:[https://t.me/wuciyuan](https://t.me/wuciyuan)
 *   一天世界 博客:[https://t.me/yitianshijie](https://t.me/yitianshijie)
@@ -1159,6 +1175,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Iyouport:[https://t.me/iyouport](https://t.me/iyouport)
 *   o1xhack & friends🥤 分享 思考 科技 生活:[https://t.me/o1xinsight](https://t.me/o1xinsight)
 *   Newlearner の自留地:[https://t.me/NewlearnerChannel](https://t.me/NewlearnerChannel)
+*   NewlearnerのIT社群:[https://t.me/NewlearnerGroup](https://t.me/NewlearnerGroup)
 *   Awesome Collection:[https://t.me/awesome_collection](https://t.me/awesome_collection)
 *   Picacomic News:[https://t.me/PicACG](https://t.me/PicACG)
 *   Apple Tech News:[https://t.me/appletechnews](https://t.me/appletechnews)
