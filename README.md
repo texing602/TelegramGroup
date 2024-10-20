@@ -75,6 +75,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   🎥 阿里云盘4K高清资源:[https://t.me/alidriver4k](https://t.me/alidriver4k)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
+*   Telegram 大厂UI设计师:[https://t.me/photoshop8888](https://t.me/photoshop8888)【专业推广设计 PS/广告/电报/电商/亚马逊】
 
 ### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
 
