@@ -53,7 +53,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
 *   Telegram 🔥吃瓜吧|吃瓜中心🍉:[https://t.me/chiguabar](https://t.me/chiguabar)
 *   Telegram 🔞色色搜索吧🔥:[https://t.me/sesesousuoba](https://t.me/sesesousuoba)
-*   Telegram ❤️色色搜索🔥NSFW:[https://t.me/sesou20w](https://t.me/sesou20w)
+*   Telegram 🔥TG全能搜索🔥:[https://t.me/sesou20w](https://t.me/sesou20w)
 *   Telegram ❤️色片搜索🔥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
 *   Telegram 🔞反差资源搜索🔥:[https://t.me/resource4](https://t.me/resource4)
