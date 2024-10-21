@@ -28,13 +28,10 @@
 
 </table>
 
-### 瀑布流Telegram群组频道导航页面：[https://telegramchannels.github.io](https://telegramchannels.github.io)
 
 ### 机场VPN导航页面：[https://jichangvpn.github.io](https://jichangvpn.github.io)
 
 ### Telegram空投
-
-电报💰dogs空投地址:[https://t.me/dogshouse_bot](https://t.me/dogshouse_bot/join?startapp=MAYhBrmaSaeH32s9jOXfgA) 空投数量根据账号活跃度和年份决定【本人一个号已薅到70U】
 
 电报💰cats空投地址:[t.me/catsgang_bot/](t.me/catsgang_bot/join?startapp=mrorvC6pDCl1rDGGTvjXd
 ) 空投数量根据账号活跃度和年份决定,错过了上面的dogs就别错过这个项目了
@@ -61,12 +58,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Telegram 🔥搜片神器🎥:[https://t.me/soupiantg](https://t.me/soupiantg)
 *   Telegram 🔥全网吃瓜黑料搜索群组🔥:[https://t.me/sousuo91p](https://t.me/sousuo91p)
 *   Telegram 🔥哆啦A梦软件App|VPN破解📱:[https://t.me/dlamapp](https://t.me/dlamapp)
-*   Telegram 🔥曝光集中营🔥:[https://t.me/bgjzy](https://t.me/bgjzy)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
-*   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_6294881820)
-*   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_6294881820)
-*   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_6294881820)
-*   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7352210715)
 *   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_6294881820)
 *   Telegram 🔥神马搜索🤖:[https://t.me/smss](https://t.me/smss?start=spread_6294881820)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
@@ -75,6 +67,13 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 *   🔥 大厂UI设计师 🔥:[https://t.me/photoshop8888](https://t.me/photoshop8888)【专业推广设计 PS/广告/电报/电商/亚马逊】
+
+### 会员 | 能量租赁机器人 【可找我代充36U/年，比机器人要便宜】
+| 名字     | 链接 | 功能描述     |
+| :---        |    :----:   |          :--- |
+|  我   |   [@tghzsx_bot](https://t.me/tghzsx_bot)  | 36U一年 |
+| 会员机器人       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
+| 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人 |
 
 ### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
 
@@ -89,13 +88,6 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)，效果：[@alidriver4k](https://t.me/alidriver4k)
 
 彩虹群发、强拉、炒群破解版：30U（链接: https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw ）
-
-### 会员 | 能量租赁机器人 【可找我代充36U/年，比机器人要便宜】
-| 名字     | 链接 | 功能描述     |
-| :---        |    :----:   |          :--- |
-|  我   |   [@tghzsx_bot](https://t.me/tghzsx_bot)  | 36U一年 |
-| 会员机器人       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
-| 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
