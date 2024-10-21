@@ -10,13 +10,13 @@
 
 ❗️❗️❗️存在️广告内容，请自行辨别真假管好自己的钱包，出问题本站概不负责❗️❗️❗️
 
-### 电报真人粉: 1000人/4000元,推荐位挂直到涨粉1000人
+Banner广告位 **200U**/月，推荐位 **50U**/月，永久推荐位**50000U**
+
 商务合作：[sobot1024@gmail.com](mailto:sobot1024@gmail.com)或[@tghzsx_bot](https://t.me/tghzsx_bot)
 
 电报**❗️中文昵称❗️**，请点击以下机器人免费领取**USDT<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether)**,数量有限先到先得
 
-### 商务合作：Banner广告位 200U/月，推荐位 50U/月，永久推荐位50000U
 
 </div>
 
