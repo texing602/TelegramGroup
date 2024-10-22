@@ -781,6 +781,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   西安:[https://t.me/joinchat/FY1SJkRF6ubEQzU-3Mq3cw](https://t.me/joinchat/FY1SJkRF6ubEQzU-3Mq3cw)
 *   河南郑州:[https://t.me/hnzzs](https://t.me/hnzzs)
 *   河南周口:[https://t.me/zhoukou](https://t.me/zhoukou)
+*   杭州电报群|杭州茶馆:[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
 
 ###### 其他[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%85%B6%E4%BB%96)
 
