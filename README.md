@@ -26,9 +26,6 @@
 
 </table>
 
-
-### 机场VPN导航页面：[https://jichangvpn.github.io](https://jichangvpn.github.io)
-
 ### Telegram空投
 
 电报💰cats空投地址:[t.me/catsgang_bot/](t.me/catsgang_bot/join?startapp=mrorvC6pDCl1rDGGTvjXd
