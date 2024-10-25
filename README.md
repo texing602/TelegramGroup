@@ -56,7 +56,7 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Telegram 🔥哆啦A梦软件App|VPN破解📱:[https://t.me/dlamapp](https://t.me/dlamapp)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
 *   Telegram 🔥百度搜索机器人🤖:[https://t.me/aiso](https://t.me/baidusosobot?start=6294881820)
-*   Telegram 🔥Jiso🤖:[https://t.me/jiso](https://t.me/jiso?start=a_6294881820)
+*   Telegram 🔥jiso中文搜索🤖:[https://t.me/jiso](https://t.me/jiso?start=a_6294881820)
 *   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_6294881820)
 *   Telegram 🔥神马搜索🤖:[https://t.me/smss](https://t.me/smss?start=spread_6294881820)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
