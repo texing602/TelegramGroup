@@ -30,12 +30,14 @@
 
 ### Telegram空投
 
-电报💰cats空投地址:[t.me/catsgang_bot/](t.me/catsgang_bot/join?startapp=mrorvC6pDCl1rDGGTvjXd
+$PAWS空投地址:[https://t.me/PAWSOG_bot](https://t.me/PAWSOG_bot/PAWS?startapp=cvqj1NZ5) 基本电报用户都有，我领取了 13311个代币，大家看看能领多少，不知道能否重铸 dogs 雄光!
+
+电报💰cats空投地址:[https://t.me/catsgang_bot](t.me/catsgang_bot/join?startapp=mrorvC6pDCl1rDGGTvjXd
 ) 空投数量根据账号活跃度和年份决定,错过了上面的dogs就别错过这个项目了
 
 电报💰blum空投地址:[https://t.me/blum/app](https://t.me/blum/app?startapp=ref_upb27LohdV) 空投数量通过游戏和完成任务获取
 
-twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=99653959) 完成社媒任务（签到、关注、转发等）
+twitter💰nebx.io空投地址:[https://nebx.io](https://nebx.io/login?v=99653959) 完成社媒任务（签到、关注、转发等）
 
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
