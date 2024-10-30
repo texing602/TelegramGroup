@@ -69,6 +69,7 @@ twitter💰nebx.io空投地址:[https://nebx.io](https://nebx.io/login?v=9965395
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 *   🔥 大厂UI设计师 🔥:[https://t.me/photoshop8888](https://t.me/photoshop8888)【专业推广设计 PS/广告/电报/电商/亚马逊】
 *  🔥 奈飞小铺 🔥:[https://ihezu.fans](https://ihezu.fans)【国内用户最多的合租平台Spotify、网飞、微软365各种开车】
+*  🔥 环球巴士 🔥:[https://universalbus.cn](https://universalbus.cn/?s=tYpQvZxph5)【全球一站式合租平台】
 
 ### 会员 | 能量租赁机器人 【可找我代充36U/年，比机器人要便宜】
 | 名字     | 链接 | 功能描述     |
