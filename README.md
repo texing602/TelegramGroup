@@ -22,7 +22,7 @@
 |:---:|:---:|:---:|
 | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820)  |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://telegramchannels.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqibar)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesesearchbar) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsousuobar)|
-| [![中文搜索①](https://i.imgur.com/dkYzSij.png)<br>TG稀缺资源搜索](https://t.me/sosobo2)  |  [![中文搜索②](https://i.imgur.com/iGCudec.jpeg)<br>企业签名](https://t.me/jq886) |[![景福宫](https://i.imgur.com/xqVLMHs.png)<br>景福宫【找妹子】](https://t.me/+bJkN6Cz7WIQ5YjQ9)|
+| [![找妹子](https://i.imgur.com/xqVLMHs.png)<br>找妹子](https://t.me/+yjr6MItkuRJkMDFl)| [![中文搜索②](https://i.imgur.com/iGCudec.jpeg)<br>企业签名](https://t.me/jq886) |[![景福宫](https://i.imgur.com/xqVLMHs.png)<br>景福宫【找妹子】](https://t.me/+bJkN6Cz7WIQ5YjQ9)|
 
 </table>
 
