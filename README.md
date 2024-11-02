@@ -28,6 +28,8 @@
 
 ### 机场VPN导航站🛫：[https://jichangvpn.github.io](https://jichangvpn.github.io/)
 
+### Telegram频道群组导航站🎯：[https://tgdh.github.io](https://tgdh.github.io/)
+
 ### Telegram空投
 
 $PAWS空投地址:[https://t.me/PAWSOG_bot](https://t.me/PAWSOG_bot/PAWS?startapp=cvqj1NZ5) 基本电报用户都有，我领取了 13311个代币，大家看看能领多少，不知道能否重铸 dogs 雄光!
