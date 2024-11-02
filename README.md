@@ -18,7 +18,7 @@
 
 </div>
 
-| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) | [![@玩偶小姐姐](https://i.imgur.com/hFz9t0f.png)<br>玩偶小姐姐](https://t.me/+Su1ikL9IhS9lN2E1)  |[![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820)|
+| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶小姐姐](https://t.me/+Su1ikL9IhS9lN2E1)  |[![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820)|
 |:---:|:---:|:---:|
 | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820)  |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://telegramchannels.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqibar)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesesearchbar) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsousuobar)|
@@ -43,8 +43,8 @@ twitter💰nebx.io空投地址:[https://nebx.io](https://nebx.io/login?v=9965395
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 修女搬运频道:[https://t.me/xiunvbanyun](https://t.me/xiunvbanyun)【💰自动搬运别的频道视频和内容，涨粉神器💰】
-*   🔞世纪交友❤️：[https://t.me/+Su1ikL9IhS9lN2E1](https://t.me/+Su1ikL9IhS9lN2E1)
-*   🔞推特|女菩萨❤️：[https://t.me/+1iPoKtB1IYkzNWU1](https://t.me/+1iPoKtB1IYkzNWU1)
+*   🔞同城交友❤️：[https://t.me/+Su1ikL9IhS9lN2E1](https://t.me/+Su1ikL9IhS9lN2E1)
+*   🔞推特|女菩萨❤️：[https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)
 *   Telegram 🔞色色搜索吧🔥:[https://t.me/sesesousuoba](https://t.me/sesesousuoba)
 *   Telegram 🔥TG全能搜索🔥:[https://t.me/sesou20w](https://t.me/sesou20w)
 *   Telegram 🎥电影搜索🎥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
