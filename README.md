@@ -80,17 +80,15 @@
 
 ### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
 
-自动上传脚本：50U(源码+搭建)，效果：[@dysyg](https://t.me/dysyg)
+| 项目                                       | 说明                                              | 价格            |
+| ------------------------------------------ | ------------------------------------------------- | --------------- |
+| 自动上传脚本                                | 提供源码及搭建服务，效果查看：[@dysyg](#)          | 50U             |
+| 破解频道/群组不允许转发内容                | 提供源码及搭建服务，效果查看：[@pdgbbot](#)        | 50U             |
+| 修女频道搬运                                | 搬运整个频道10U；监听别的频道同步到自己频道10U/年，自行联系[@banyunpindao](#) | 10U   |
+| 自动转发频道机器人                          | 自动搬运别人频道内容到自己频道，提供源码及搭建服务 | 100U            |
+| 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
+| 彩虹群发、强拉、炒群破解版                 | 链接：[https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw) | 30U             |
 
-破解频道/群组不允许转发内容：50U(源码+搭建)，效果：[@pdgbbot](https://t.me/pdgbbot)
-
-修女频道搬运：[@banyunpindao](https://t.me/banyunpindao)【搬运整个频道10U，监听别的频道同步到自己频道10U/一年，自行联系账号】
-
-自动转发频道机器人(自动搬运别人频道内容到自己频道)：100U(源码+搭建)
-
-自动转发频道机器人(自动搬运别人频道且可以文末自定义文案)：140U(源码+搭建)，效果：[@alidriver4k](https://t.me/alidriver4k)
-
-彩虹群发、强拉、炒群破解版：30U（链接: https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw ）
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
