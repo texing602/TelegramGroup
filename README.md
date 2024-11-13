@@ -41,7 +41,7 @@
 | BLUM      | [https://t.me/blum/app](https://t.me/blum/app?startapp=ref_upb27LohdV)                        | 通过游戏和完成任务获取空投    |
 | NEBX.IO   | [https://nebx.io](https://nebx.io/login?v=99653959)                                            | 社交媒体任务（签到、关注等）  |
 
-**拉人头0.5U/人，可以双向[@larentou](https://t.me/larentoubot)联系我，有严格的审查机制，僵尸粉假粉就别来了，浪费时间**
+**拉人头0.5U/人，可以双向联系[@larentou](https://t.me/larentoubot)，有严格的审查机制，僵尸粉假粉就别来了，浪费时间**
 
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
