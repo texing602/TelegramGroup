@@ -32,6 +32,8 @@
 
 ### Telegram频道群组导航站🎯：[https://tgdh.github.io](https://tgdh.github.io/)
 
+### 全🌍经纪人-找妹纸🔥:[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
+
 ### Telegram空投
 
 | 项目      | 空投地址及说明                                                                                 | 领取条件                     |
@@ -45,7 +47,6 @@
 有大的频道主或者是流量站长可以合作，拉人头项目，拉一个人0.5U，一天一结。有资源可以双向联系[@larentou](https://t.me/larentoubot)，有严格的审查机制，僵尸粉假粉就别来了，浪费时间。
 
 ### 推荐
-*   🔥**全🌍经纪人-找妹纸**🔥:[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 修女搬运频道:[https://t.me/xiunvbanyun](https://t.me/xiunvbanyun)【💰自动搬运别的频道视频和内容，涨粉神器💰】
