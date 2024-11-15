@@ -20,11 +20,11 @@
 
 </div>
 
-| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶小姐姐](https://t.me/+Su1ikL9IhS9lN2E1)  |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |
+| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+13y3t9rQ1Z04NDEx)  |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |
 |:---:|:---:|:---:|
 | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820) |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://tgdh.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqibar)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesesearchbar) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsousuobar)|
-| [![找妹子](https://i.imgur.com/NpN4IfD.png)<br>全国找妹子](https://t.me/+yjr6MItkuRJkMDFl)| [![中文搜索②](https://i.imgur.com/iGCudec.jpeg)<br>企业签名](https://t.me/jq886) |[![景福宫](https://i.imgur.com/xqVLMHs.png)<br>景福宫【找妹子】](https://t.me/+bJkN6Cz7WIQ5YjQ9)|
+| [![找妹子](https://i.imgur.com/NpN4IfD.png)<br>找妹子](https://t.me/+yjr6MItkuRJkMDFl)| [![中文搜索②](https://i.imgur.com/iGCudec.jpeg)<br>企业签名](https://t.me/jq886) |[![景福宫](https://i.imgur.com/xqVLMHs.png)<br>景福宫【找妹子】](https://t.me/+bJkN6Cz7WIQ5YjQ9)|
 
 </table>
 
@@ -41,23 +41,25 @@
 | BLUM      | [https://t.me/blum/app](https://t.me/blum/app?startapp=ref_upb27LohdV)                        | 通过游戏和完成任务获取空投    |
 | NEBX.IO   | [https://nebx.io](https://nebx.io/login?v=99653959)                                            | 社交媒体任务（签到、关注等）  |
 
+### 商务合作 
+有大的频道主或者是流量站长可以合作，拉人头项目，拉一个人0.5U，一天一结。有资源可以双向联系[@larentou](https://t.me/larentoubot)，有严格的审查机制，僵尸粉假粉就别来了，浪费时间。
 
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 修女搬运频道:[https://t.me/xiunvbanyun](https://t.me/xiunvbanyun)【💰自动搬运别的频道视频和内容，涨粉神器💰】
-*   🔞同城交友❤️：[https://t.me/+Su1ikL9IhS9lN2E1](https://t.me/+Su1ikL9IhS9lN2E1)
+*   🔞同城交友❤️：[https://t.me/+13y3t9rQ1Z04NDEx](https://t.me/+13y3t9rQ1Z04NDEx)
 *   🔞推特|女菩萨❤️：[https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)
 *   🔞女神聚集地❤️：[https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1)
 *   🔞不良少女❤️：[https://t.me/+sTlv601C1hE3N2Mx](https://t.me/+sTlv601C1hE3N2Mx)
-*   Telegram 🔞色色搜索吧🔥:[https://t.me/sesesousuoba](https://t.me/sesesousuoba)
+*   Telegram 🔞色色搜索吧❤️:[https://t.me/sesesousuoba](https://t.me/sesesousuoba)
 *   Telegram 🔥TG全能搜索🔥:[https://t.me/sesou20w](https://t.me/sesou20w)
 *   Telegram 🎥电影搜索🎥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
-*   Telegram 🔞资源搜索🔥:[https://t.me/resource4](https://t.me/resource4)
-*   Telegram 🔞稀缺资源搜索🔥:[https://t.me/sosobo2](https://t.me/sosobo2)
+*   Telegram 🔥资源搜索🔥:[https://t.me/resource4](https://t.me/resource4)
+*   Telegram 🔥稀缺资源搜索🔥:[https://t.me/sosobo2](https://t.me/sosobo2)
 *   Telegram 🥷暗网搜索🔍:[https://t.me/anwangbots](https://t.me/anwangbots)
-*   Telegram 🔥搜片神器🎥:[https://t.me/soupiantg](https://t.me/soupiantg)
+*   Telegram 🎥搜片神器🔍:[https://t.me/soupiantg](https://t.me/soupiantg)
 *   Telegram 🔥全网吃瓜黑料搜索群组🔥:[https://t.me/sousuo91p](https://t.me/sousuo91p)
 *   Telegram 🔥全网吃瓜|第一吃瓜🍉:[https://t.me/diyichigua](https://t.me/diyichigua)
 *   Telegram 🔥吃瓜吧|吃瓜中心🍉:[https://t.me/chiguabar](https://t.me/chiguabar)
@@ -72,6 +74,7 @@
 *   🎥 阿里云盘4K高清资源:[https://t.me/alidriver4k](https://t.me/alidriver4k)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
+*   🔥 频道转发机器人 🔥:[https://t.me/tgzf5173_bot](https://t.me/tgzf5173_bot)【💰破解频道无法下载、转发机器人，涨粉神器💰】
 *   🔥 大厂UI设计师 🔥:[https://t.me/photoshop8888](https://t.me/photoshop8888)【专业推广设计 PS/广告/电报/电商/亚马逊】
 *   🔥 奈飞小铺 🔥:[https://ihezu.fans](https://ihezu.fans)【国内用户最多的合租平台Spotify、网飞、微软365各种开车】
 *   🔥 环球巴士 🔥:[https://universalbus.cn](https://universalbus.cn/?s=tYpQvZxph5)【全球一站式合租平台】
