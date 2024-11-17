@@ -109,7 +109,9 @@
 
 ### 交易所提币
 
-免费领取100NOT代币
+**币安免费领取100NOT代币**
+
+
 <img src="https://i.imgur.com/lEiDdZ6.png" alt="红包" width="450" height="600">
 
 | 名字     | 链接 | 功能描述     |
