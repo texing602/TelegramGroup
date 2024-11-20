@@ -24,7 +24,7 @@
 |:---:|:---:|:---:|
 |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://tgdh.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqibar)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesesearchbar) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsousuobar)|
-| [![找妹子](https://i.imgur.com/NpN4IfD.png)<br>找妹子](https://t.me/+yjr6MItkuRJkMDFl)| [![中文搜索②](https://i.imgur.com/iGCudec.jpeg)<br>企业签名](https://t.me/jq886) |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
+| [![soso搜索群](https://i.imgur.com/NpN4IfD.png)<br>20万人搜索群](https://t.me/sousou20w)| [![中文搜索②](https://i.imgur.com/iGCudec.jpeg)<br>企业签名](https://t.me/jq886) |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
 
 </table>
 
@@ -33,6 +33,8 @@
 ### Telegram频道群组导航站🎯：[https://tgdh.github.io](https://tgdh.github.io/)
 
 ### 全🌍经纪人-找妹纸🔥：[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
+
+### 🔥全国找妹纸🔥：[https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl)
 
 ### Telegram空投
 
