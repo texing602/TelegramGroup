@@ -57,7 +57,6 @@
 *   🔞女神聚集地❤️：[https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1)
 *   🔞大学生专区❤️：[https://t.me/+TERGPTtc7lFhN2I5](https://t.me/+TERGPTtc7lFhN2I5)
 *   🔞不良少女❤️：[https://t.me/+sTlv601C1hE3N2Mx](https://t.me/+sTlv601C1hE3N2Mx)
-*   ₿区块链助手₿：[https://t.me/QueryTokenBot](https://t.me/QueryTokenBot?start=invite_7439567495) 【用来监听钱包余额变化，防骗必备神器】
 *   Telegram 🔞色色搜索吧❤️:[https://t.me/sesesousuoba](https://t.me/sesesousuoba)
 *   Telegram 🔥TG全能搜索🔥:[https://t.me/sesou20w](https://t.me/sesou20w)
 *   Telegram 🎥电影搜索🎥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
