@@ -106,8 +106,14 @@
 | 自动转发频道机器人                          | 自动搬运别人频道内容,提供源码及搭建服务 | 100U            |
 | 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
 | 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 链接：[https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw) | 30U             |
-|![https://i.imgur.com/9E65XRH.png](https://i.imgur.com/9E65XRH.png)                 | ![https://i.imgur.com/xQg4WdU.png](https://i.imgur.com/xQg4WdU.png) | ![https://i.imgur.com/o32jV8y.png](https://i.imgur.com/o32jV8y.png)            |
+<div style="display: flex; justify-content: space-between;">
+  <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹1" style="width: 30%;"/>
+  <img src="https://i.imgur.com/xQg4WdU.png" alt="彩虹2" style="width: 30%;"/>
+  <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹3" style="width: 30%;"/>
+</div>
+<table>
 
+</table>
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
