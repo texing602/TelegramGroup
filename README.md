@@ -270,12 +270,6 @@
 | 创建临时邮箱机器人   | [@RustRssBot](https://t.me/RustRssBot)        | 中文 Telegram RSS 机器人     |
 | 解除频道消息在群组的置顶   | [@areply_bot](https://t.me/areply_bot)        | 自动解除频道消息在群组的同步置顶，附带群组日常维护常用小功能  |
 
-#### 参考资料
-- [BotoStore](https://botostore.com/) 一个专门收录telegram bot的国外网站，过滤了垃圾邮件和成人内容的bot
-- [BotsArchive](https://botsarchive.com/) Telegram机器人档案，不收录成人内容的bottelegram频道：[BotsArchive](https://t.me/BotsArchive)
-- [Telegram Bot：@BotsArchiveBot](https://t.me/BotsArchiveBot)
-- [Search Telegram Bots](https://botlist.infotelbot.com/) 一个按类型查找电报机器人网站
-
 ### 群组 Group[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BE%A4%E7%BB%84-group)
 
 ###### 京豆
@@ -1701,3 +1695,9 @@
 *   [Telegram 各个系统客户端地址](https://congcong0806.github.io/2019/01/08/Telegram)
 *   [Telegram 群组、频道、机器人 - 汇总分享](https://congcong0806.github.io/2018/04/24/Telegram)
 *   [Telegram 中文搜索解决方案](https://congcong0806.github.io/2019/11/04/TelegramSearch)
+
+#### 参考资料
+- [BotoStore](https://botostore.com/) 一个专门收录telegram bot的国外网站，过滤了垃圾邮件和成人内容的bot
+- [BotsArchive](https://botsarchive.com/) Telegram机器人档案，不收录成人内容的bottelegram频道：[BotsArchive](https://t.me/BotsArchive)
+- [Telegram Bot：@BotsArchiveBot](https://t.me/BotsArchiveBot)
+- [Search Telegram Bots](https://botlist.infotelbot.com/) 一个按类型查找电报机器人网站
