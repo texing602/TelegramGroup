@@ -111,9 +111,7 @@
   <img src="https://i.imgur.com/xQg4WdU.png" alt="彩虹2" style="width: 30%;"/>
   <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹3" style="width: 30%;"/>
 </div>
-<table>
 
-</table>
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
