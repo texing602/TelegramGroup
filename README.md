@@ -36,20 +36,20 @@
 
 ### 🔥全国找妹纸🔥：[https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl)
 
-### Telegram空投
-
-| 项目      | 空投地址及说明                                                                                 | 领取条件                     |
-| --------- | --------------------------------------------------------------------------------------------- | ---------------------------- |
-| PAWS      | [https://t.me/PAWSOG_bot](https://t.me/PAWSOG_bot/PAWS?startapp=cvqj1NZ5)                     | 基本电报用户都有，领取数量不等 |
-| CATS      | [https://t.me/catsgang_bot](https://t.me/catsgang_bot/join?startapp=mrorvC6pDCl1rDGGTvjXd)     | 依据账号活跃度和年份发放      |
-| BLUM      | [https://t.me/blum/app](https://t.me/blum/app?startapp=ref_upb27LohdV)                        | 通过游戏和完成任务获取空投    |
-| NEBX.IO   | [https://nebx.io](https://nebx.io/login?v=99653959)                                            | 社交媒体任务（签到、关注等）  |
-
-### 指纹多开浏览器【薅羊毛必备】
-| 项目      | 官网地址                                                                                 | 介绍                   |
-| --------- | --------------------------------------------------------------------------------------------- | ---------------------------- |
-| AdsPower     | [https://www.adspower.net](https://share.adspower.net/j0nPEN)                     | 免费版本最多配置5个环境 |
-| MoreLogin      | [https://www.morelogin.com](https://www.morelogin.com/?from=AA1ADh2pdRLo)     | 免费2个环境，2个成员      |
+### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
+| 项目                                       | 说明                                              | 价格            |
+| ------------------------------------------ | ------------------------------------------------- | --------------- |
+| 自动上传脚本                                | 提供源码及搭建服务，效果查看：[@dysyg](#)          | 50U             |
+| 破解频道/群组不允许转发内容                | 提供源码及搭建服务，效果查看：[@pdgbbot](#)        | 50U             |
+| 修女频道搬运                                | 搬运整个频道10U,自行联系[@banyunpindao](#) | 10U   |
+| 自动转发频道机器人                          | 自动搬运别人频道内容,提供源码及搭建服务 | 100U            |
+| 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
+| 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 链接：[https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw) | 30U             |
+<div style="display: flex; justify-content: space-between;">
+  <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹1" style="width: 30%;"/>
+  <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹2" style="width: 30%;"/>
+  <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹3" style="width: 30%;"/>
+</div>
 
 ### 商务合作 
 有大的频道主或者是流量站长可以合作，拉人头项目，拉一个人0.5U，一天一结。有资源可以双向联系[@larentou](https://t.me/larentoubot)，有严格的审查机制，僵尸粉假粉就别来了，浪费时间。
@@ -96,32 +96,29 @@
 | 电报会员自助开通机器人       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通Telegram电报会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 | 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人 |
 
-### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
-
-| 项目                                       | 说明                                              | 价格            |
-| ------------------------------------------ | ------------------------------------------------- | --------------- |
-| 自动上传脚本                                | 提供源码及搭建服务，效果查看：[@dysyg](#)          | 50U             |
-| 破解频道/群组不允许转发内容                | 提供源码及搭建服务，效果查看：[@pdgbbot](#)        | 50U             |
-| 修女频道搬运                                | 搬运整个频道10U,自行联系[@banyunpindao](#) | 10U   |
-| 自动转发频道机器人                          | 自动搬运别人频道内容,提供源码及搭建服务 | 100U            |
-| 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
-| 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 链接：[https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw) | 30U             |
-<div style="display: flex; justify-content: space-between;">
-  <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹1" style="width: 30%;"/>
-  <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹2" style="width: 30%;"/>
-  <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹3" style="width: 30%;"/>
-</div>
-
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
 | wallet       |   [@wallet](https://t.me/wallet)  | Telegram官方钱包，支持比特币、USDT和TON的应用内支付|
 | okpay      | [@OkayPayBot](https://t.me/OkayPayBot?start=creditCardInvite--6294881820)       |可用于店租（Amazon、Shopify、Shope等）、广告（Facebook、Google等）、云服务、游戏、开发者应用、海淘购物等全场景支付。|
 
+### Telegram空投
+| 项目      | 空投地址及说明                                                                                 | 领取条件                     |
+| --------- | --------------------------------------------------------------------------------------------- | ---------------------------- |
+| PAWS      | [https://t.me/PAWSOG_bot](https://t.me/PAWSOG_bot/PAWS?startapp=cvqj1NZ5)                     | 基本电报用户都有，领取数量不等 |
+| CATS      | [https://t.me/catsgang_bot](https://t.me/catsgang_bot/join?startapp=mrorvC6pDCl1rDGGTvjXd)     | 依据账号活跃度和年份发放      |
+| BLUM      | [https://t.me/blum/app](https://t.me/blum/app?startapp=ref_upb27LohdV)                        | 通过游戏和完成任务获取空投    |
+| NEBX.IO   | [https://nebx.io](https://nebx.io/login?v=99653959)                                            | 社交媒体任务（签到、关注等）  |
+
+### 指纹多开浏览器【薅羊毛必备】
+| 项目      | 官网地址                                                                                 | 介绍                   |
+| --------- | --------------------------------------------------------------------------------------------- | ---------------------------- |
+| AdsPower     | [https://www.adspower.net](https://share.adspower.net/j0nPEN)                     | 免费版本最多配置5个环境 |
+| MoreLogin      | [https://www.morelogin.com](https://www.morelogin.com/?from=AA1ADh2pdRLo)     | 免费2个环境，2个成员      |
+
 ### 交易所提币
 
 **币安免费领取100NOT代币**
-
 
 <img src="https://i.imgur.com/lEiDdZ6.png" alt="红包" width="450" height="600">
 
