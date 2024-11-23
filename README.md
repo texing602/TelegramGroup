@@ -36,21 +36,6 @@
 
 ### 🔥全国找妹纸🔥：[https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl)
 
-### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
-| 项目                                       | 说明                                              | 价格            |
-| ------------------------------------------ | ------------------------------------------------- | --------------- |
-| 自动上传脚本                                | 提供源码及搭建服务，效果查看：[@dysyg](#)          | 50U             |
-| 破解频道/群组不允许转发内容                | 提供源码及搭建服务，效果查看：[@pdgbbot](#)        | 50U             |
-| 修女频道搬运                                | 搬运整个频道10U,自行联系[@banyunpindao](#) | 10U   |
-| 自动转发频道机器人                          | 自动搬运别人频道内容,提供源码及搭建服务 | 100U            |
-| 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
-| 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 链接：[https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw) | 30U             |
-<div style="display: flex; justify-content: space-between;">
-  <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹1" style="width: 30%;"/>
-  <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹2" style="width: 30%;"/>
-  <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹3" style="width: 30%;"/>
-</div>
-
 ### 商务合作 
 有大的频道主或者是流量站长可以合作，拉人头项目，拉一个人0.5U，一天一结。有资源可以双向联系[@larentou](https://t.me/larentoubot)，有严格的审查机制，僵尸粉假粉就别来了，浪费时间。
 
@@ -89,6 +74,21 @@
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 *   🔥 奈飞小铺 🔥:[https://ihezu.fans](https://ihezu.fans)【国内用户最多的合租平台Spotify、网飞、微软365各种开车】
 *   🔥 环球巴士 🔥:[https://universalbus.cn](https://universalbus.cn/?s=tYpQvZxph5)【全球一站式合租平台】
+
+### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
+| 项目                                       | 说明                                              | 价格            |
+| ------------------------------------------ | ------------------------------------------------- | --------------- |
+| 自动上传脚本                                | 提供源码及搭建服务，效果查看：[@dysyg](#)          | 50U             |
+| 破解频道/群组不允许转发内容                | 提供源码及搭建服务，效果查看：[@pdgbbot](#)        | 50U             |
+| 修女频道搬运                                | 搬运整个频道10U,自行联系[@banyunpindao](#) | 10U   |
+| 自动转发频道机器人                          | 自动搬运别人频道内容,提供源码及搭建服务 | 100U            |
+| 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
+| 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 链接：[https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw) | 30U             |
+<div style="display: flex; justify-content: space-between;">
+  <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹1" style="width: 30%;"/>
+  <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹2" style="width: 30%;"/>
+  <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹3" style="width: 30%;"/>
+</div>
 
 ### 会员 | 能量租赁机器人 【可找我代充36U/年，比机器人要便宜】
 | 名字     | 链接 | 功能描述     |
