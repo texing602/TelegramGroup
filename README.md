@@ -102,7 +102,7 @@
 ### Telegram空投
 | 项目      | 空投地址及说明                                                                                 | 领取条件                     |
 | --------- | --------------------------------------------------------------------------------------------- | ---------------------------- |
-| PAWS      | [https://t.me/PAWSOG_bot](https://t.me/PAWSOG_bot/PAWS?startapp=cvqj1NZ5)                     | 基本电报用户都有，领取数量不等 |
+| PAWS      | [https://t.me/PAWSOG_bot](https://t.me/PAWSOG_bot/PAWS?startapp=oswQUDfd)                     | 基本电报用户都有，领取数量不等 |
 | CATS      | [https://t.me/catsgang_bot](https://t.me/catsgang_bot/join?startapp=mrorvC6pDCl1rDGGTvjXd)     | 依据账号活跃度和年份发放      |
 | BLUM      | [https://t.me/blum/app](https://t.me/blum/app?startapp=ref_upb27LohdV)                        | 通过游戏和完成任务获取空投    |
 | NEBX.IO   | [https://nebx.io](https://nebx.io/login?v=99653959)                                            | 社交媒体任务（签到、关注等）  |
