@@ -40,12 +40,10 @@
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 修女搬运频道:[https://t.me/xiunvbanyun](https://t.me/xiunvbanyun)【💰自动搬运别的频道视频和内容，涨粉神器💰】
-*   🔞同城交友❤️：[https://t.me/+gAPPGaiYm1FlNTlh](https://t.me/+gAPPGaiYm1FlNTlh)
 *   🔞推特|女菩萨❤️：[https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)
 *   🔞女神聚集地❤️：[https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1)
 *   🔞大学生专区❤️：[https://t.me/+TERGPTtc7lFhN2I5](https://t.me/+TERGPTtc7lFhN2I5)
 *   🔞不良少女❤️：[https://t.me/+sTlv601C1hE3N2Mx](https://t.me/+sTlv601C1hE3N2Mx)
-*   ₿区块链助手₿：[https://t.me/QueryTokenBot](https://t.me/QueryTokenBot?start=invite_7439567495) 【用来监听钱包余额变化，防骗必备神器】
 *   Telegram 🔞色色搜索吧❤️:[https://t.me/sesesousuoba](https://t.me/sesesousuoba)
 *   Telegram 🔥TG全能搜索🔥:[https://t.me/sesou20w](https://t.me/sesou20w)
 *   Telegram 🎥电影搜索🎥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
@@ -148,6 +146,7 @@
 |  ID查询机器人  | [@username_to_id_bot](https://t.me/username_to_id_bot)        | 查询用户ID、频道ID、群组ID |
 |  ID查询机器人  | [@nminfobot](https://t.me/nminfobot)        | 转发一条聊天信息给我，快速查询对方 ID|
 |  短信轰炸机器人  | [@Carll_Bomb_bot](https://t.me/Carll_Bomb_bot?start=7439567495)        | 短信轰炸机器人，这你爱的人送上“祝福”。让你爱的人，“夜不能寐”|
+|  区块链助手  | [@QueryTokenBot](https://t.me/QueryTokenBot?start=invite_7439567495)        | 用来监听钱包余额变化，防骗必备神器|
 
 
 #### TG中文群组索引机器人bot
