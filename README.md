@@ -78,7 +78,7 @@
 | 修女频道搬运                                | 搬运整个频道10U,自行联系[@banyunpindao](#) | 10U   |
 | 自动转发频道机器人                          | 自动搬运别人频道内容,提供源码及搭建服务 | 100U            |
 | 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
-| 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 链接：[https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw) | 30U             |
+| 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 软件下载地址：[网盘地址](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw),使用教程:[视频教程](https://www.youtube.com/watch?v=t09ZIz3k-i4) | 30U             |
 <div style="display: flex; justify-content: space-between;">
   <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹1" style="width: 30%;"/>
   <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹2" style="width: 30%;"/>
