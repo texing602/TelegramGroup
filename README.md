@@ -93,6 +93,8 @@
 
 ## +86 无法接收验证码问题
 
+视频参考：https://www.youtube.com/watch?v=ErfanyyANUI
+
 ### 1. 开通国际漫游
 
 | 运营商 | 短信内容 | 发送号码 |
@@ -113,7 +115,6 @@
 ### 4. Giffgaff 手机卡
 
 - 淘宝口令：`7$nLhL3ujoLr9$:// CZ3148`
-
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
