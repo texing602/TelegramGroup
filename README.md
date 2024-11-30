@@ -91,6 +91,30 @@
 | 电报会员自助开通机器人       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通Telegram电报会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 | 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人 |
 
+## +86 无法接收验证码问题
+
+### 1. 开通国际漫游
+
+| 运营商 | 短信内容 | 发送号码 |
+|--------|----------|----------|
+| **移动**   | 发送“11111” | 10629349125637402 |
+| **电信**   | 发送“11111” | 1068299708 |
+| **联通**   | 发送“11111” | 106829970757 |
+
+### 2. TelegramX
+
+- [TelegramX 官方下载](https://play.google.com/store/apps/details?id=org.thunderdog.challegram)
+- [TelegramX 安卓下载（免 Google Play）](https://telegram-x.cn.uptodown.com/android)
+
+### 3. 接码平台
+
+- [SMS 接码平台](https://sms-activate.guru/?ref=2695392)
+
+### 4. Giffgaff 手机卡
+
+- 淘宝口令：`7$nLhL3ujoLr9$:// CZ3148`
+
+
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
