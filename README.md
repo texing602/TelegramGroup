@@ -242,6 +242,25 @@
 | :---        |    :----:   |          :--- |
 | 骂人机器人      | [@the_jbot](https://t.me/the_jbot)       | 骂人机器人  |
 
+#### 下载机器人
+| 名字               | 链接                                           | 功能描述                                   |
+| :---               | :----:                                         | :---                                       |
+| 网易云音乐下载     | [@Music163bot](https://t.me/Music163bot)       | 支持网易云音乐下载                        |
+| 抖音 TikTok 视频图集解析 | [@DouYintg_bot](https://t.me/DouYintg_bot)   | 支持抖音、TikTok、X推特、小红书等视频图集解析，支持去水印 |
+| 支持推特、微博、小红书、reddit解析 | [@web2album_bot](https://t.me/web2album_bot) | 支持推特、微博、小红书、reddit解析，支持长截图分割 |
+| B站、抖音、微博等解析 | [@bilibiliparse_bot](https://t.me/bilibiliparse_bot) | 支持B站、抖音、小红书、推特、Ins、油管、TikTok等解析 |
+| 支持多平台解析     | [@douyin_download_bot](https://t.me/douyin_download_bot) | 支持B站、抖音、小红书、推特、Ins、FB、油管等解析 |
+| 多平台解析工具     | [@ParsehubBot](https://t.me/ParsehubBot)     | 支持抖音、B站、油管、TikTok、小红书、推特等解析 |
+| 支持多个平台下载   | [@icbcbot](https://t.me/icbcbot)             | 支持抖音、TikTok、推特、Ins、微博等平台下载 |
+| 妙妙小工具 Beta    | [@GLBetabot](https://t.me/GLBetabot)          | 支持多个平台和网站的下载功能，详细功能见官网 |
+| 多平台下载工具     | [@download_it_bot](https://t.me/download_it_bot) | 支持大多数网站下载                       |
+| 推特视频下载       | [@twitter_loli_bot](https://t.me/twitter_loli_bot) | 推特视频下载，速度快                     |
+| Reddit下载器       | [@reddit_download_bot](https://t.me/reddit_download_bot) | Reddit视频下载器                        |
+| 多平台下载工具集   | [@MultiSaverXbot](https://t.me/MultiSaverXbot) | 多个链接支持国外下载网站                |
+| B站视频下载       | [@bilifeedbot](https://t.me/bilifeedbot)     | B站下载                                 |
+| Pixiv下载          | [@Pixiv_bot](https://t.me/Pixiv_bot)          | Pixiv下载                                |
+| 电影搜索机器人     | [@Cctv365bot](https://t.me/Cctv365bot)        | 电影搜索机器人                          |
+
 #### 其他有趣机器人
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
