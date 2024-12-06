@@ -32,7 +32,7 @@
 
 ### Telegram频道群组导航站🎯：[https://tgdh.github.io](https://tgdh.github.io/)
 
-### 全🌍经纪人-找妹纸🔥：[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
+### 🔥全国找妹子🔥：[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
 
 ### 🔥全国找妹纸🔥：[https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl)
 
