@@ -24,7 +24,7 @@
 |:---:|:---:|:---:|
 |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://tgdh.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqibar)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesesearchbar) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsousuobar)|
-| [![彩虹群发破解版](https://i.imgur.com/3sj68Gz.png)<br>彩虹群发破解版(广告营销)](https://t.me/caihongmsgbot)| [![中文搜索②](https://i.imgur.com/iGCudec.jpeg)<br>企业签名](https://t.me/jq886) |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
+| [![彩虹群发破解版](https://i.imgur.com/1CsNGPN.jpeg)<br>电报稀缺资源大全中文搜索](https://t.me/tgxqzy)| [![中文搜索](https://i.imgur.com/OWV7rdZ.png)<br>soso20万人群](https://t.me/sousou20w) |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
 
 </table>
 
@@ -32,7 +32,7 @@
 
 ### Telegram频道群组导航站🎯：[https://tgdh.github.io](https://tgdh.github.io/)
 
-### 全🌍经纪人-找妹纸🔥：[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
+### 🔥全国找妹子🔥：[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
 
 ### 🔥全国找妹纸🔥：[https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl)
 
@@ -43,7 +43,7 @@
 *   🔞推特|女菩萨❤️：[https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)
 *   🔞女神聚集地❤️：[https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1)
 *   🔞大学生专区❤️：[https://t.me/+TERGPTtc7lFhN2I5](https://t.me/+TERGPTtc7lFhN2I5)
-*   🔞不良少女❤️：[https://t.me/+sTlv601C1hE3N2Mx](https://t.me/+sTlv601C1hE3N2Mx)
+*   🔞不良少女❤️：[https://t.me/+JSktL905RudlZmVl](https://t.me/+JSktL905RudlZmVl)
 *   Telegram 🔞色色搜索吧❤️:[https://t.me/sesesousuoba](https://t.me/sesesousuoba)
 *   Telegram 🔥TG全能搜索🔥:[https://t.me/sesou20w](https://t.me/sesou20w)
 *   Telegram 🎥电影搜索🎥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
@@ -58,9 +58,6 @@
 *   Telegram 🔥吃瓜吧|吃瓜中心🍉:[https://t.me/chiguabar](https://t.me/chiguabar)
 *   Telegram 🔥哆啦A梦软件App|VPN破解📱:[https://t.me/dlamapp](https://t.me/dlamapp)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
-*   Telegram 🔥百度搜索机器人🤖:[https://t.me/aiso](https://t.me/baidusosobot?start=6294881820)
-*   Telegram 🔥jiso中文搜索🤖:[https://t.me/jiso](https://t.me/jiso?start=a_6294881820)
-*   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_6294881820)
 *   Telegram 🔥神马搜索🤖:[https://t.me/smss](https://t.me/smss?start=spread_6294881820)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
@@ -78,7 +75,7 @@
 | 修女频道搬运                                | 搬运整个频道10U,自行联系[@banyunpindao](#) | 10U   |
 | 自动转发频道机器人                          | 自动搬运别人频道内容,提供源码及搭建服务 | 100U            |
 | 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
-| 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 链接：[https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw) | 30U             |
+| 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 软件下载地址:[网盘地址](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw),使用教程:[视频教程](https://www.youtube.com/watch?v=t09ZIz3k-i4),购买联系:[@caihongbuybot](https://t.me/caihongbuybot) | 30U             |
 <div style="display: flex; justify-content: space-between;">
   <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹1" style="width: 30%;"/>
   <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹2" style="width: 30%;"/>
@@ -90,6 +87,31 @@
 | :---        |    :----:   |          :--- |
 | 电报会员自助开通机器人       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通Telegram电报会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 | 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人 |
+
+## +86 无法接收验证码问题
+
+视频参考：https://www.youtube.com/watch?v=ErfanyyANUI
+
+### 1. 开通国际漫游
+
+| 运营商 | 短信内容 | 发送号码 |
+|--------|----------|----------|
+| **移动**   | 发送“11111” | 10629349125637402 |
+| **电信**   | 发送“11111” | 1068299708 |
+| **联通**   | 发送“11111” | 106829970757 |
+
+### 2. TelegramX
+
+- [TelegramX 官方下载](https://play.google.com/store/apps/details?id=org.thunderdog.challegram)
+- [TelegramX 安卓下载（免 Google Play）](https://telegram-x.cn.uptodown.com/android)
+
+### 3. 接码平台
+
+- [SMS 接码平台](https://sms-activate.guru/?ref=2695392)
+
+### 4. Giffgaff 手机卡
+
+- 淘宝口令：`7$nLhL3ujoLr9$:// CZ3148`
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
@@ -122,7 +144,7 @@
 | 币安    |   [https://accounts.binance.com](https://accounts.binance.com/zh-CN/register?ref=896983517)   |       币安交易所(持有bnb减免40%手续费)|
 | ByBit    |   [https://www.bybit.com/](https://www.bybit.com/invite?ref=4VLKDMW)   |      ByBit交易所(减免30%手续费)|
 | 火币    |   [https://www.htx.com](https://www.htx.com.de/zh-cn/v/register/double-invite/?invite_code=xpi6a223&inviter_id=11346560)   |      火币交易所(减免30%手续费)|
-| 欧易OKX    |   [https://www.okx.com](https://okx.com/join/78810492)   |      欧易交易所(减免20%手续费)|
+| 欧易OKX    |   [https://www.okx.com](https://chouyi.info/join/50253981)   |      欧易交易所(减免30%手续费)|
 
 ### 常用机器人
 
@@ -135,7 +157,7 @@
 | 群管理机器人      | [@nmnmfunbot](https://t.me/nmnmfunbot)       |中文用户使用最多的群管理机器人，几乎什么功能都有  |
 | 群管理机器人      | [@GroupHelpBot](https://t.me/GroupHelpBot)       |根据自己群组的需要设定一系列的自动化内容，如欢迎语、跳转到社媒账号或独立站、删除信息、警告用户等  |
 | 群管理机器人      | [@WeGroupRobot](https://t.me/WeGroupRobot)       |专为管理和优化群组聊天体验而设计。它可以帮助群组管理员简化日常管理任务，提高群组的互动质量 |
-| 方丈群管理机器人      | [@WeGroupRobot](https://t.me/fangzhang_bot)       |新人进群验证、新人进群欢迎词、垃圾信息拦截、自动回复、定时发送、强制订阅、消息统计 |
+| 方丈群管理机器人      | [@fangzhang_bot](https://t.me/fangzhang_bot)       |新人进群验证、新人进群欢迎词、垃圾信息拦截、自动回复、定时发送、强制订阅、消息统计 |
 | 起点交易机器人      | [@qdbot](https://t.me/qdbot?start=invite_533296)       |网络骗子太多，需要担保平台，保证双方利益的交易机器人 |
 | 双向机器人      | [@LivegramBot](https://t.me/LivegramBot)       |可以免费创建属于自己的双向机器人，解决账号无法主动发起会话的问题  |
 | 按钮机器人      | [@PostBot](https://t.me/PostBot)       | 可以在群组或者频道里面编辑按钮控件，用来挂链接或者打广告的神器 |
@@ -216,6 +238,25 @@
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
 | 骂人机器人      | [@the_jbot](https://t.me/the_jbot)       | 骂人机器人  |
+
+#### 下载机器人
+| 名字               | 链接                                           | 功能描述                                   |
+| :---               | :----:                                         | :---                                       |
+| 网易云音乐下载     | [@Music163bot](https://t.me/Music163bot)       | 支持网易云音乐下载                        |
+| 抖音 TikTok 视频图集解析 | [@DouYintg_bot](https://t.me/DouYintg_bot)   | 支持抖音、TikTok、X推特、小红书等视频图集解析，支持去水印 |
+| 支持推特、微博、小红书、reddit解析 | [@web2album_bot](https://t.me/web2album_bot) | 支持推特、微博、小红书、reddit解析，支持长截图分割 |
+| B站、抖音、微博等解析 | [@bilibiliparse_bot](https://t.me/bilibiliparse_bot) | 支持B站、抖音、小红书、推特、Ins、油管、TikTok等解析 |
+| 支持多平台解析     | [@douyin_download_bot](https://t.me/douyin_download_bot) | 支持B站、抖音、小红书、推特、Ins、FB、油管等解析 |
+| 多平台解析工具     | [@ParsehubBot](https://t.me/ParsehubBot)     | 支持抖音、B站、油管、TikTok、小红书、推特等解析 |
+| 支持多个平台下载   | [@icbcbot](https://t.me/icbcbot)             | 支持抖音、TikTok、推特、Ins、微博等平台下载 |
+| 妙妙小工具 Beta    | [@GLBetabot](https://t.me/GLBetabot)          | 支持多个平台和网站的下载功能，详细功能见官网 |
+| 多平台下载工具     | [@download_it_bot](https://t.me/download_it_bot) | 支持大多数网站下载                       |
+| 推特视频下载       | [@twitter_loli_bot](https://t.me/twitter_loli_bot) | 推特视频下载，速度快                     |
+| Reddit下载器       | [@reddit_download_bot](https://t.me/reddit_download_bot) | Reddit视频下载器                        |
+| 多平台下载工具集   | [@MultiSaverXbot](https://t.me/MultiSaverXbot) | 多个链接支持国外下载网站                |
+| B站视频下载       | [@bilifeedbot](https://t.me/bilifeedbot)     | B站下载                                 |
+| Pixiv下载          | [@Pixiv_bot](https://t.me/Pixiv_bot)          | Pixiv下载                                |
+| 电影搜索机器人     | [@Cctv365bot](https://t.me/Cctv365bot)        | 电影搜索机器人                          |
 
 #### 其他有趣机器人
 | 名字     | 链接 | 功能描述     |
