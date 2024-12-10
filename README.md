@@ -113,6 +113,19 @@
 
 - 淘宝口令：`7$nLhL3ujoLr9$:// CZ3148`
 
+### Telegram API申请
+
+官网申请API: https://my.telegram.org/auth?to=apps
+
+网络有问题我这边可以帮忙代申请100%成功，5U或者是30块有需要联系TG:[@banyunpindao](https://t.me/banyunpindao)
+
+| Field         | Value                                    |
+|---------------|------------------------------------------|
+| App api_id    | 23862859                                 |
+| App api_hash  | 9fc6cfff12d0763xxx1125ddb46602a          |
+| App title     | zhuanfabotsxxx                              |
+| Short name    | zhuanfabotsxxx                              |
+
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
