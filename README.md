@@ -35,7 +35,7 @@
 ### 🔥全国找妹子🔥：[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
 
 ### 🔥全国找妹纸🔥：[https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl)
-###  ❤雅柔❤：[https://t.me/hfdsff77777](https://t.me/hfdsff77777)
+###  ❤雅雅❤：[https://t.me/ashdsh666666](https://t.me/ashdsh666666)
 
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
