@@ -37,7 +37,7 @@
 | **❤雅雅❤**                | [https://t.me/ashdsh666666](https://t.me/ashdsh666666) |
 | **Telegram 🔥频道导航/群组导航🔥** | [https://t.me/tgpddh](https://t.me/tgpddh) |
 | **Telegram 🚀每日免费节点**  | [https://t.me/autofreevpn](https://t.me/autofreevpn) |
-| **Telegram 修女搬运频道**    | [https://t.me/xiunvbanyun](https://t.me/xiunvbanyun) |
+| **Telegram 修女搬运频道💰频道涨粉利器💰**    | [https://t.me/xiunvbanyun](https://t.me/xiunvbanyun) |
 | **Telegram 🔞色色搜索吧❤️**  | [https://t.me/sesesousuoba](https://t.me/sesesousuoba) |
 | **Telegram 🔥TG全能搜索🔥**  | [https://t.me/sesou20w](https://t.me/sesou20w) |
 | **Telegram 🎥电影搜索🎥Pron** | [https://t.me/sepiansousuo](https://t.me/sepiansousuo) |
@@ -50,7 +50,7 @@
 | **Telegram 🔥全网吃瓜黑料搜索群组🔥** | [https://t.me/sousuo91p](https://t.me/sousuo91p) |
 | **Telegram 🔥全网吃瓜、第一吃瓜🍉**  | [https://t.me/diyichigua](https://t.me/diyichigua) |
 | **Telegram 🔥吃瓜吧、吃瓜中心🍉**   | [https://t.me/chiguabar](https://t.me/chiguabar) |
-| **Telegram 🔥哆啦A梦软件App📱** | [https://t.me/dlamapp](https://t.me/dlamapp) |
+| **Telegram 🔥哆啦A梦软件App、VPN破解📱** | [https://t.me/dlamapp](https://t.me/dlamapp) |
 | **Telegram 🔥客户端中文汉化CN** | [https://t.me/go2cn](https://t.me/go2cn) |
 | **Telegram 🔥神马搜索🤖**     | [https://t.me/smss](https://t.me/smss?start=spread_6294881820) |
 | **🔥赏颜阁🔥全网最漂亮的妹子聚集地** | [https://t.me/dysyg](https://t.me/dysyg) |
