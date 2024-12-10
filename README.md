@@ -35,15 +35,12 @@
 ### 🔥全国找妹子🔥：[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
 
 ### 🔥全国找妹纸🔥：[https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl)
+###  ❤雅雅❤：[https://t.me/ashdsh666666](https://t.me/ashdsh666666)
 
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Telegram 修女搬运频道:[https://t.me/xiunvbanyun](https://t.me/xiunvbanyun)【💰自动搬运别的频道视频和内容，涨粉神器💰】
-*   🔞推特|女菩萨❤️：[https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)
-*   🔞女神聚集地❤️：[https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1)
-*   🔞大学生专区❤️：[https://t.me/+TERGPTtc7lFhN2I5](https://t.me/+TERGPTtc7lFhN2I5)
-*   🔞不良少女❤️：[https://t.me/+JSktL905RudlZmVl](https://t.me/+JSktL905RudlZmVl)
 *   Telegram 🔞色色搜索吧❤️:[https://t.me/sesesousuoba](https://t.me/sesesousuoba)
 *   Telegram 🔥TG全能搜索🔥:[https://t.me/sesou20w](https://t.me/sesou20w)
 *   Telegram 🎥电影搜索🎥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
@@ -66,6 +63,10 @@
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 *   🔥 奈飞小铺 🔥:[https://ihezu.fans](https://ihezu.fans)【国内用户最多的合租平台Spotify、网飞、微软365各种拼车】
 *   🔥 环球巴士 🔥:[https://universalbus.cn](https://universalbus.cn/?s=tYpQvZxph5)【全球一站式合租平台】
+*   🔞推特|女菩萨❤️：[https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)
+*   🔞女神聚集地❤️：[https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1)
+*   🔞大学生专区❤️：[https://t.me/+TERGPTtc7lFhN2I5](https://t.me/+TERGPTtc7lFhN2I5)
+*   🔞不良少女❤️：[https://t.me/+JSktL905RudlZmVl](https://t.me/+JSktL905RudlZmVl)
 
 ### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
 | 项目                                       | 说明                                              | 价格            |
@@ -112,6 +113,19 @@
 ### 4. Giffgaff 手机卡
 
 - 淘宝口令：`7$nLhL3ujoLr9$:// CZ3148`
+
+### Telegram API申请
+
+官网申请API: https://my.telegram.org/auth?to=apps
+
+网络有问题我这边可以帮忙代申请100%成功，5U或者是30块有需要联系TG:[@banyunpindao](https://t.me/banyunpindao)
+
+| Field         | Value                                    |
+|---------------|------------------------------------------|
+| App api_id    | 23862859                                 |
+| App api_hash  | 9fc6cfff12d0763xxx1125ddb46602a          |
+| App title     | zhuanfabotsxxx                              |
+| Short name    | zhuanfabotsxxx                              |
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
