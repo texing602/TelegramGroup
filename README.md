@@ -28,14 +28,14 @@
 
 </table>
 
-### 机场VPN导航站🛫：[https://jichangvpn.github.io](https://jichangvpn.github.io/)
+| **导航名称**       | **链接**                                           |
+|-----------------|---------------------------------------------------|
+| **机场VPN导航站🛫** | [https://jichangvpn.github.io](https://jichangvpn.github.io) |
+| **Telegram频道群组导航站🎯** | [https://tgdh.github.io](https://tgdh.github.io) |
+| **🔥全国找妹子🔥**  | [https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9) |
+| **🔥全国找妹纸🔥**  | [https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl) |
+| **❤雅雅❤**      | [https://t.me/ashdsh666666](https://t.me/ashdsh666666) |
 
-### Telegram频道群组导航站🎯：[https://tgdh.github.io](https://tgdh.github.io/)
-
-### 🔥全国找妹子🔥：[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
-
-### 🔥全国找妹纸🔥：[https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl)
-###  ❤雅雅❤：[https://t.me/ashdsh666666](https://t.me/ashdsh666666)
 
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
