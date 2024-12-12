@@ -160,6 +160,28 @@
 | 火币    |   [https://www.htx.com](https://www.htx.com.de/zh-cn/v/register/double-invite/?invite_code=xpi6a223&inviter_id=11346560)   |      火币交易所(减免30%手续费)|
 | 欧易OKX    |   [https://www.okx.com](https://chouyi.info/join/50253981)   |      欧易交易所(减免30%手续费)|
 
+### 虚拟货币机器人
+| **名称**       | **描述**               | **链接**                           |
+|-----------------|----------------------|-------------------------------------|
+| **Pepebot**     | 中文机器人，国内第一，操作简单 | [Pepebot](https://t.me/pepeboost_sol05_bot?start=ref_05gt6s) |
+| **木马机器人**  | 功能最全，速度快，中文，首选，可以跟单 | [木马机器人](https://t.me/diomedes_trojanbot?start=r-tgldy) |
+| **Solbot机器人**| 国外喜欢这个，速度快   | [Solbot机器人](https://t.me/SolTradingBot_Asia_Bot?start=NEkB7KuEK) |
+| **Cashbot**     | 可以直接跟单聪明钱，中文界面 | [Cashbot](https://t.me/CashCash_trade_bot?start=ref_f05f644b-4) |
+| **Robotech**    | 中文机器人，操作简单   | [Robotech](https://t.me/SOL_RoboTechLab_bot?start=Z1sLHV4yJC-ZFgRJ) |
+| **Nfdbot**      | 国外排第一             | [Nfdbot](https://t.me/nfd_tron_trade_bot?start=saIVzNrEtj6a) |
+| **Sundog机器人**| Sundog开发团队的官方机器人，比较安全，推荐 | [Sundog机器人](https://t.me/sundog_trade_bot?start=aiedUrGoZmTq) |
+| **Tronbot**     | 支持中文               | [Tronbot](https://t.me/sunpump?start=invite_DGxUY4iAyK) |
+| **Tronsnipebot**| -                    | [Tronsnipebot](https://t.me/Tronsnipebot?start=ref_Ub77NkK9xw) |
+| **Nntrx**       | 用于租能量            | [Nntrx](https://t.me/nntrx_bot?start=7202424896) |
+| **Pepeboost**   | ETH链机器人           | [Pepeboost](https://t.me/pepeboost_swap_bot?start=ref_04z4et) |
+| **BASE链BOT**   | ETH链常用BOT          | [BASE链BOT](https://t.me/Sigma_buyBot?start=ref=7202424896) |
+| **大师机器人**  | -                    | [大师机器人](https://t.me/maestro?start=r-tgldy) |
+| **Ave机器人**   | -                    | [Ave机器人](https://t.me/AveSniperBot?start=ref_tgldy) |
+| **Dbot**        | -                    | [Dbot](https://t.me/sol_dbot?start=ref_18442256) |
+| **龙枪**        | -                    | [龙枪](https://t.me/dragun69?start=rich6d8dab5533a2) |
+
+如果需要进一步修改或调整，请告诉我。
+
 ### 常用机器人
 
 🔥Telegram专门的机器人合集🔥：[https://github.com/itgoyo/TelegramBot](https://github.com/itgoyo/TelegramBot)
