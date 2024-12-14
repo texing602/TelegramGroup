@@ -57,6 +57,7 @@
 *   Telegram 🔥哆啦A梦软件App|VPN破解📱:[https://t.me/dlamapp](https://t.me/dlamapp)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
 *   Telegram 🔥神马搜索🤖:[https://t.me/smss](https://t.me/smss?start=spread_6294881820)
+*   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_6294881820)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
 *   🎥 阿里云盘4K高清资源:[https://t.me/alidriver4k](https://t.me/alidriver4k)
