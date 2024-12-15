@@ -24,26 +24,24 @@
 |:---:|:---:|:---:|
 |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://tgdh.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqibar)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesesearchbar) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsousuobar)|
-| [![彩虹群发破解版](https://i.imgur.com/1CsNGPN.jpeg)<br>电报稀缺资源大全中文搜索](https://t.me/tgxqzy)| [![中文搜索](https://i.imgur.com/OWV7rdZ.png)<br>soso20万人群](https://t.me/sousou20w) |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
+| [![彩虹群发破解版](https://i.imgur.com/1CsNGPN.jpeg)<br>电报稀缺资源大全中文搜索](https://t.me/tgxqzy)| [![飞机/电报Telegram tdata/低价TG账号/TDATA/电脑直登/直登号tdata/协议号](https://i.imgur.com/GBNfIT9.png)<br>高启强直登号tdata低价批发](https://t.me/tdataman) |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
 
 </table>
 
-### 机场VPN导航站🛫：[https://jichangvpn.github.io](https://jichangvpn.github.io/)
+| **导航名称**       | **链接**                                           |
+|-----------------|---------------------------------------------------|
+| **机场VPN导航站🛫** | [https://jichangvpn.github.io](https://jichangvpn.github.io) |
+| **Telegram频道群组导航站🎯** | [https://tgdh.github.io](https://tgdh.github.io) |
+| **🔥全国找妹子🔥**  | [https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9) |
+| **🔥全国找妹纸🔥**  | [https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl) |
+| **❤雅雅❤**      | [https://t.me/ashdsh666666](https://t.me/ashdsh666666) |
 
-### Telegram频道群组导航站🎯：[https://tgdh.github.io](https://tgdh.github.io/)
-
-### 🔥全国找妹子🔥：[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
-
-### 🔥全国找妹纸🔥：[https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl)
 
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
 *   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
+*   Telegram 🔥最全色色机器人🔥:[https://t.me/zuiquansesebot](https://t.me/zuiquansesebot?start=home_sF4iEIrTb9jwK)
 *   Telegram 修女搬运频道:[https://t.me/xiunvbanyun](https://t.me/xiunvbanyun)【💰自动搬运别的频道视频和内容，涨粉神器💰】
-*   🔞推特|女菩萨❤️：[https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)
-*   🔞女神聚集地❤️：[https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1)
-*   🔞大学生专区❤️：[https://t.me/+TERGPTtc7lFhN2I5](https://t.me/+TERGPTtc7lFhN2I5)
-*   🔞不良少女❤️：[https://t.me/+JSktL905RudlZmVl](https://t.me/+JSktL905RudlZmVl)
 *   Telegram 🔞色色搜索吧❤️:[https://t.me/sesesousuoba](https://t.me/sesesousuoba)
 *   Telegram 🔥TG全能搜索🔥:[https://t.me/sesou20w](https://t.me/sesou20w)
 *   Telegram 🎥电影搜索🎥Pron:[https://t.me/sepiansousuo](https://t.me/sepiansousuo)
@@ -59,6 +57,7 @@
 *   Telegram 🔥哆啦A梦软件App|VPN破解📱:[https://t.me/dlamapp](https://t.me/dlamapp)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
 *   Telegram 🔥神马搜索🤖:[https://t.me/smss](https://t.me/smss?start=spread_6294881820)
+*   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_6294881820)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
 *   🎥 阿里云盘4K高清资源:[https://t.me/alidriver4k](https://t.me/alidriver4k)
@@ -66,6 +65,10 @@
 *   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
 *   🔥 奈飞小铺 🔥:[https://ihezu.fans](https://ihezu.fans)【国内用户最多的合租平台Spotify、网飞、微软365各种拼车】
 *   🔥 环球巴士 🔥:[https://universalbus.cn](https://universalbus.cn/?s=tYpQvZxph5)【全球一站式合租平台】
+*   🔞推特|女菩萨❤️：[https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)
+*   🔞女神聚集地❤️：[https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1)
+*   🔞大学生专区❤️：[https://t.me/+TERGPTtc7lFhN2I5](https://t.me/+TERGPTtc7lFhN2I5)
+*   🔞不良少女❤️：[https://t.me/+JSktL905RudlZmVl](https://t.me/+JSktL905RudlZmVl)
 
 ### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
 | 项目                                       | 说明                                              | 价格            |
@@ -113,6 +116,19 @@
 
 - 淘宝口令：`7$nLhL3ujoLr9$:// CZ3148`
 
+### Telegram API申请
+
+官网申请API: https://my.telegram.org/auth?to=apps
+
+网络有问题我这边可以帮忙代申请100%成功，5U或者是30块有需要联系TG:[@banyunpindao](https://t.me/banyunpindao)
+
+| Field         | Value                                    |
+|---------------|------------------------------------------|
+| App api_id    | 23862859                                 |
+| App api_hash  | 9fc6cfff12d0763xxx1125ddb46602a          |
+| App title     | zhuanfabotsxxx                              |
+| Short name    | zhuanfabotsxxx                              |
+
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
@@ -145,6 +161,28 @@
 | ByBit    |   [https://www.bybit.com/](https://www.bybit.com/invite?ref=4VLKDMW)   |      ByBit交易所(减免30%手续费)|
 | 火币    |   [https://www.htx.com](https://www.htx.com.de/zh-cn/v/register/double-invite/?invite_code=xpi6a223&inviter_id=11346560)   |      火币交易所(减免30%手续费)|
 | 欧易OKX    |   [https://www.okx.com](https://chouyi.info/join/50253981)   |      欧易交易所(减免30%手续费)|
+
+### 虚拟货币机器人
+| **名称**       | **描述**               | **链接**                           |
+|-----------------|----------------------|-------------------------------------|
+| **Pepebot**     | 中文机器人，国内第一，操作简单 | [Pepebot](https://t.me/pepeboost_sol05_bot?start=ref_05gt6s) |
+| **木马机器人**  | 功能最全，速度快，中文，首选，可以跟单 | [木马机器人](https://t.me/diomedes_trojanbot?start=r-tgldy) |
+| **Solbot机器人**| 国外喜欢这个，速度快   | [Solbot机器人](https://t.me/SolTradingBot_Asia_Bot?start=NEkB7KuEK) |
+| **Cashbot**     | 可以直接跟单聪明钱，中文界面 | [Cashbot](https://t.me/CashCash_trade_bot?start=ref_f05f644b-4) |
+| **Robotech**    | 中文机器人，操作简单   | [Robotech](https://t.me/SOL_RoboTechLab_bot?start=Z1sLHV4yJC-ZFgRJ) |
+| **Nfdbot**      | 国外排第一             | [Nfdbot](https://t.me/nfd_tron_trade_bot?start=saIVzNrEtj6a) |
+| **Sundog机器人**| Sundog开发团队的官方机器人，比较安全，推荐 | [Sundog机器人](https://t.me/sundog_trade_bot?start=aiedUrGoZmTq) |
+| **Tronbot**     | 支持中文               | [Tronbot](https://t.me/sunpump?start=invite_DGxUY4iAyK) |
+| **Tronsnipebot**| -                    | [Tronsnipebot](https://t.me/Tronsnipebot?start=ref_Ub77NkK9xw) |
+| **Nntrx**       | 用于租能量            | [Nntrx](https://t.me/nntrx_bot?start=7202424896) |
+| **Pepeboost**   | ETH链机器人           | [Pepeboost](https://t.me/pepeboost_swap_bot?start=ref_04z4et) |
+| **BASE链BOT**   | ETH链常用BOT          | [BASE链BOT](https://t.me/Sigma_buyBot?start=ref=7202424896) |
+| **大师机器人**  | -                    | [大师机器人](https://t.me/maestro?start=r-tgldy) |
+| **Ave机器人**   | -                    | [Ave机器人](https://t.me/AveSniperBot?start=ref_tgldy) |
+| **Dbot**        | -                    | [Dbot](https://t.me/sol_dbot?start=ref_18442256) |
+| **龙枪**        | -                    | [龙枪](https://t.me/dragun69?start=rich6d8dab5533a2) |
+
+如果需要进一步修改或调整，请告诉我。
 
 ### 常用机器人
 
