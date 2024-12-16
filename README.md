@@ -24,7 +24,7 @@
 |:---:|:---:|:---:|
 |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://tgdh.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqibar)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesesearchbar) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsousuobar)|
-| [![彩虹群发破解版](https://i.imgur.com/1CsNGPN.jpeg)<br>电报稀缺资源大全中文搜索](https://t.me/tgxqzy)| [![飞机/电报Telegram tdata/低价TG账号/TDATA/电脑直登/直登号tdata/协议号](https://i.imgur.com/GBNfIT9.png)<br>高启强直登号tdata低价批发](https://t.me/tdataman) |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
+| [![彩虹群发破解版](https://i.imgur.com/1CsNGPN.jpeg)<br>电报稀缺资源大全中文搜索](https://t.me/tgxqzy)| [![飞机/电报Telegram tdata/低价TG账号/TDATA/电脑直登/直登号tdata/协议号](https://i.imgur.com/WM2MkgS.png)<br>全自动频道搬运/监听转发](https://t.me/tdataman) |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
 
 </table>
 
@@ -66,7 +66,6 @@
 *   🔥 环球巴士 🔥:[https://universalbus.cn](https://universalbus.cn/?s=tYpQvZxph5)【全球一站式合租平台】
 *   🔞推特|女菩萨❤️：[https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)
 *   🔞女神聚集地❤️：[https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1)
-*   🔞大学生专区❤️：[https://t.me/+TERGPTtc7lFhN2I5](https://t.me/+TERGPTtc7lFhN2I5)
 *   🔞不良少女❤️：[https://t.me/+JSktL905RudlZmVl](https://t.me/+JSktL905RudlZmVl)
 
 ### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
