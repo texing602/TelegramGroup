@@ -14,7 +14,7 @@
 
 
 <img src="https://i.imgur.com/ywjcaE6.png" alt="USDT">
-电报中文昵称❗️请点击以下机器人免费领取USDT❗️<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
+电报中文昵称也就是汉字❗️请点击以下机器人免费领取USDT❗️<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether),数量有限先到先得
 
 商务合作：[sobot1024@gmail.com](mailto:sobot1024@gmail.com)或[@tghzsx_bot](https://t.me/tghzsx_bot)
