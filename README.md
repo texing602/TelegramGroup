@@ -339,7 +339,7 @@
 | 创建临时邮箱机器人   | [@RustRssBot](https://t.me/RustRssBot)        | 中文 Telegram RSS 机器人     |
 | 解除频道消息在群组的置顶   | [@areply_bot](https://t.me/areply_bot)        | 自动解除频道消息在群组的同步置顶，附带群组日常维护常用小功能  |
 
-### 群组 Group[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BE%A4%E7%BB%84-group)
+### 群组 Group
 
 ###### 京豆
 
@@ -352,7 +352,7 @@
 *   Bigo社区群:[https://t.me/bigo_tool](https://t.me/bigo_tool)
 *   Fragment账号实时报价:[https://t.me/Fragment_Monitor](https://t.me/Fragment_Monitor)
 
-###### 番茄[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
+###### 翻墙
 
 *   机场VPN导航站:[https://jichangvpn.github.io/](https://jichangvpn.github.io/)
 *   每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
@@ -438,7 +438,7 @@
 *   SSRSpeed N 使用交流:[https://t.me/SSRSpeedN](https://t.me/SSRSpeedN)
 *   iQZone:[https://t.me/iQ_Zone](https://t.me/iQ_Zone)
 
-###### 软件[](https://congcong0806.github.io/2018/04/24/Telegram/#%E8%BD%AF%E4%BB%B6)
+###### 软件
 
 *   Microsoft users:[https://t.me/Microsofthelp](https://t.me/Microsofthelp)
 *   捷径 Shortcuts:[https://t.me/SiriShortcuts](https://t.me/SiriShortcuts)
@@ -533,7 +533,7 @@
 *   DEVONthink Chinese:[https://t.me/DEVONthink](https://t.me/DEVONthink)
 *   Filebox 官方群:[https://t.me/FileboxApp](https://t.me/FileboxApp)
 
-###### 社群[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%A4%BE%E7%BE%A4)
+###### 社群
 
 *   币圈日报:[https://t.me/bidaily](https://t.me/bidaily)
 *   币安官方中文群:[https://t.me/BinanceChinese](https://t.me/BinanceChinese)
@@ -785,8 +785,7 @@
 *   闲蛋面板🥚交流群:[https://t.me/xdzzmb](https://t.me/xdzzmb)
 *   加密货币爱好者:[https://t.me/twittercryptofans](https://t.me/twittercryptofans)
 
-###### 播客[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%92%AD%E5%AE%A2)
-
+###### 播客
 *   一天世界:[https://t.me/ipn_yitianshijie](https://t.me/ipn_yitianshijie)
 *   ○△□（不鳥萬通讯）:[https://t.me/igiveafuck](https://t.me/igiveafuck)
 *   灭茶苦茶 听众群:[https://t.me/ipn_miechakucha](https://t.me/ipn_miechakucha)
@@ -799,7 +798,7 @@
 *   播客大家谈:[https://t.me/bokecn](https://t.me/bokecn)
 *   「得意忘形」听众群:[https://t.me/joinchat/Bx8JqQ33oVCrKSul-cHJGQ](https://t.me/joinchat/Bx8JqQ33oVCrKSul-cHJGQ)
 
-###### Telegram[](https://congcong0806.github.io/2018/04/24/Telegram/#telegram)
+###### Telegram
 
 *   Durov’s Chat:[https://t.me/durovschat](https://t.me/durovschat)
 *   官方翻译支持群 English:[https://t.me/translation_en](https://t.me/translation_en)
@@ -853,7 +852,7 @@
 *   64Gram:[https://t.me/tg_x64](https://t.me/tg_x64)
 *   telegram.Bot:[https://t.me/pythontelegrambotgroup](https://t.me/pythontelegrambotgroup)
 
-###### 地区群[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%9C%B0%E5%8C%BA%E7%BE%A4)
+###### 地区群
 
 *   深圳:[https://t.me/shenzhenbot?start=join](https://t.me/shenzhenbot?start=join)
 *   深圳:[https://t.me/shenzhentg](https://t.me/shenzhentg)
@@ -873,7 +872,7 @@
 *   河南周口:[https://t.me/zhoukou](https://t.me/zhoukou)
 *   杭州电报群|杭州茶馆:[https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9)
 
-###### 其他[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%85%B6%E4%BB%96)
+###### 其他
 
 *   Coder Offtopic 中文群:[https://t.me/coder_ot](https://t.me/coder_ot)
 *   BoastTG:[https://t.me/BoastTG](https://t.me/BoastTG)
@@ -923,7 +922,7 @@
 *   想尽办法看电视:[https://t.me/joinchat/MgUQ3B1apkzq3sqVzTFP0A](https://t.me/joinchat/MgUQ3B1apkzq3sqVzTFP0A)
 *   一起充电群:[https://t.me/letsbuycharger](https://t.me/letsbuycharger)
 
-##### 频道 Channel[](https://congcong0806.github.io/2018/04/24/Telegram/#%E9%A2%91%E9%81%93-channel)
+##### 频道 Channel
 
 *   Durov’s Channel（Telegram 创始人兼 CEO 的频道）:[https://t.me/durov](https://t.me/durov)
 *   Telegram 官方诈骗举报:[https://t.me/notoscam](https://t.me/notoscam)
@@ -1008,7 +1007,7 @@
 *   捷报 News:[https://t.me/JieBaoNews](https://t.me/JieBaoNews)
 *   PagerMaid-Modify Update:[https://t.me/PagerMaid_Modify](https://t.me/PagerMaid_Modify)
 
-###### 翻墙[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99-1)
+###### 翻墙
 
 *   毒药机场测速 SS/SSR:[https://t.me/DuyaoSS](https://t.me/DuyaoSS)
 *   V1 Blog 科技 生活 SpeedTest 主机评测:[https://t.me/V1_BLOG](https://t.me/V1_BLOG)
@@ -1066,7 +1065,7 @@
 *   中信加速器 VPN 官方频道:[https://t.me/zxfast_channel](https://t.me/zxfast_channel)
 *   黑科技 TG 代理:[https://t.me/iPoject](https://t.me/iPoject)
 
-###### 软件[](https://congcong0806.github.io/2018/04/24/Telegram/#%E8%BD%AF%E4%BB%B6-1)
+###### 软件
 
 *   App 限免精选:[https://t.me/appfans](https://t.me/appfans)
 *   iOS Releases:[https://t.me/iOSUpdates](https://t.me/iOSUpdates)
@@ -1109,7 +1108,7 @@
 *   Anti Revoke Plugin - 防撤回插件:[https://t.me/AntiRevoke](https://t.me/AntiRevoke)
 *   Typecho Dev Channel:[https://t.me/typechodev](https://t.me/typechodev)
 
-###### 媒体[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%AA%92%E4%BD%93)
+###### 媒体
 
 *   Telegram 中文 NEWS:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
 *   阿里云盘发布频道:[https://t.me/Aliyundrive_Share_Channel](https://t.me/Aliyundrive_Share_Channel)
@@ -1319,7 +1318,7 @@
 *   用爱发电俱乐部:[https://t.me/NotionFans](https://t.me/NotionFans)
 
 
-###### 其他[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%85%B6%E4%BB%96-1)
+###### 其他
 
 *   频道 / 群组 / 机器人分享:[https://t.me/hao123f](https://t.me/hao123f)
 *   Animated Stickers:[https://t.me/AnimatedStickers](https://t.me/AnimatedStickers)
@@ -1585,9 +1584,9 @@
 *   瞎玩菌:[https://t.me/blindgamer](https://t.me/blindgamer)
 *   Tesla China 🅥:[https://t.me/Teslacn](https://t.me/Teslacn)
 
-##### 机器人 Bot[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%9C%BA%E5%99%A8%E4%BA%BA-bot)
+##### 机器人 Bot
 
-###### 官方认证 Bot[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%AE%98%E6%96%B9%E8%AE%A4%E8%AF%81-bot)
+###### 官方认证 Bot
 
 *   [BotFather](https://t.me/BotFather) 是所有机器人的 god 了，Telegram 官方管理；可以用它创建机器人和管理机器人，你可以利用机器人 API, 帮你自己很多事情
 *   [IFTTT](https://t.me/IFTTT) ifttt 的官方机器人，可以很方便的和 ifttt 里的其他服务连接，比如订阅某个网站的 RSS, 如果有更新就会自动把 RSS 内容推送到这个机器人，减少了频繁刷新网站来获取新的内容
@@ -1606,8 +1605,7 @@
 *   [ContestBot](https://t.me/ContestBot) ContestBot is a way for Telegram to hold online competitions and find new members for the Telegram team.
 *   [QuizBot](https://t.me/QuizBot) Create a quiz with several multiple choice questions and test your friends.
 
-###### 其他[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%85%B6%E4%BB%96-2)
-
+###### 其他
 *   [这个我知道](https://t.me/keyword_reply_bot) 本机器人能够自动回复关键词对应的内容
 *   [这个我删了 Bot](https://t.me/keyworddel_bot) 自动删除’推广 / 广告 / 菠菜’等等消息
 *   [Vultr 助手 Bot](https://t.me/vultr_helper_bot) 绑定 Vultr 账户，定时提醒 Vultr 账户的余额和流量不足信息
@@ -1755,18 +1753,11 @@
 *   [Telegram Bot Store](https://storebot.me/)
 *   [Telegram Bots](https://blog.rawstack.co/post/telegram-bots)
 
-（排名不分先后）
-
-##### Telegram 相关链接[](https://congcong0806.github.io/2018/04/24/Telegram/#telegram-%E7%9B%B8%E5%85%B3%E9%93%BE%E6%8E%A5)
-
-*   [Telegram 知识](https://congcong0806.github.io/2019/04/11/Telegram)
-*   [Telegram 官方客户端支持中文语言](https://congcong0806.github.io/2019/02/21/Telegram)
-*   [Telegram 各个系统客户端地址](https://congcong0806.github.io/2019/01/08/Telegram)
-*   [Telegram 群组、频道、机器人 - 汇总分享](https://congcong0806.github.io/2018/04/24/Telegram)
-*   [Telegram 中文搜索解决方案](https://congcong0806.github.io/2019/11/04/TelegramSearch)
-
 #### 参考资料
+
 - [BotoStore](https://botostore.com/) 一个专门收录telegram bot的国外网站，过滤了垃圾邮件和成人内容的bot
 - [BotsArchive](https://botsarchive.com/) Telegram机器人档案，不收录成人内容的bottelegram频道：[BotsArchive](https://t.me/BotsArchive)
 - [Telegram Bot：@BotsArchiveBot](https://t.me/BotsArchiveBot)
 - [Search Telegram Bots](https://botlist.infotelbot.com/) 一个按类型查找电报机器人网站
+
+（排名不分先后）
