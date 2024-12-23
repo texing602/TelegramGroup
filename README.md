@@ -53,6 +53,7 @@
 | 🔥 神马搜索         | [https://t.me/smss](https://t.me/smss)       | 提供快速资源搜索服务          |
 | 🔥 aiso中文搜索     | [https://t.me/aiso](https://t.me/aiso)       | 中文资源搜索引擎             |
 | 🔥 哆啦A梦软件App| [https://t.me/dlamapp](https://t.me/dlamapp) | 各种软件、App和VPN破解资源    |
+| 🔥 色瓜中心| [https://t.me/seguazhongxin](https://t.me/seguazhongxin) | 分享全网第一热瓜|
 | 🔥 全网直播回放      | [https://t.me/luzhiob](https://t.me/luzhiob)   | 直播回放资源，涵盖抖音、斗鱼等  |
 | 🎥 阿里云盘4K高清资源  | [https://t.me/alidriver4k](https://t.me/alidriver4k) | 阿里云盘的4K高清资源分享      |
 | 🔥 国内大流量卡       | [https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024) | 29元200G大流量卡信息         |
