@@ -62,7 +62,7 @@
 | 🔞 推特女菩萨      | [https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl) | 提供推特女神相关的资源       |
 | 🔞 女神聚集地       | [https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1) | 各类女神资源汇集平台         |
 | 🔞 不良少女         | [https://t.me/+JSktL905RudlZmVl](https://t.me/+JSktL905RudlZmVl) | 提供不良少女相关资源分享     |
-| 🔞 女大学生         | [https://t.me/+xys36k-y9Rk2OTQx](https://t.me/+xys36k-y9Rk2OTQx) | 交友相关资源分享     |
+| 🔞 女大学生         | [https://t.me/+bP2C6wrFOjxkMTVk](https://t.me/+bP2C6wrFOjxkMTVk) | 交友相关资源分享     |
 
 如果需要调整展示内容或添加更多频道，请告诉我。
 
