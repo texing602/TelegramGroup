@@ -35,6 +35,7 @@
 | **🛫机场VPN导航站🛫** | [https://jichangvpn.github.io](https://jichangvpn.github.io) |
 | **🎯Telegram频道群组导航站🎯** | [https://tgdh.github.io](https://tgdh.github.io) |
 | **🔥全国找妹子🔥**  | [https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9) |
+| **🔥全国找妹纸🔥**  | [https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl) |
 | **❤雅雅(希望遇到有缘人)❤**      | [https://t.me/jhjwdf11118888](https://t.me/jhjwdf11118888) |
 | **🛫飞机电报低价直登号tdata/协议号session🛫**         | [https://t.me/tdataman](https://t.me/tdataman)(0.5U一个直登号协议号，量大价格更低) |
 
