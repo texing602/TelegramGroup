@@ -76,9 +76,9 @@
 | 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
 | 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 软件下载地址:[网盘地址](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw),使用教程:[视频教程](https://www.youtube.com/watch?v=t09ZIz3k-i4),购买联系:[@caihongbuybot](https://t.me/caihongbuybot) | 30U             |
 <div style="display: flex; justify-content: space-between;">
-  <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹1" style="width: 30%;"/>
-  <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹2" style="width: 30%;"/>
-  <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹3" style="width: 30%;"/>
+  <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹群发器破解版免费" style="width: 30%;"/>
+  <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹群发器破解版" style="width: 30%;"/>
+  <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹群发电报神器" style="width: 30%;"/>
 </div>
 
 ### 会员 | 能量租赁机器人 【可找我代充36U/年，比机器人要便宜】
