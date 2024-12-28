@@ -59,12 +59,10 @@
 | 🔥 国内大流量卡       | [https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024) | 29元200G大流量卡信息         |
 | 🔥 奈飞小铺         | [https://ihezu.fans](https://ihezu.fans)     | 提供Spotify、网飞等平台的拼车服务 |
 | 🔥 环球巴士         | [https://universalbus.cn](https://universalbus.cn) | 全球一站式合租平台，支持多平台  |
-| 🔞 推特女菩萨      | [https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl) | 提供推特女神相关的资源       |
-| 🔞 女神聚集地       | [https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1) | 各类女神资源汇集平台         |
-| 🔞 不良少女         | [https://t.me/+JSktL905RudlZmVl](https://t.me/+JSktL905RudlZmVl) | 提供不良少女相关资源分享     |
-| 🔞 女大学生         | [https://t.me/+bP2C6wrFOjxkMTVk](https://t.me/+bP2C6wrFOjxkMTVk) | 交友相关资源分享     |
-
-如果需要调整展示内容或添加更多频道，请告诉我。
+| 🔞 推特女菩萨      | [https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)  |  骗子    |
+| 🔞 女神聚集地       | [https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1) |    骗子  |
+| 🔞 不良少女         | [https://t.me/+JSktL905RudlZmVl](https://t.me/+JSktL905RudlZmVl) |      骗子|
+| 🔞 女大学生         | [https://t.me/+bP2C6wrFOjxkMTVk](https://t.me/+bP2C6wrFOjxkMTVk) |      骗子|
 
 ### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
 | 项目                                       | 说明                                              | 价格            |
