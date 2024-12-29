@@ -22,9 +22,9 @@
 </div>
 
 <!-- BEGIN_REPLACE_SECTION -->
-| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7439567495) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7439567495) |
+| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7202424896) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7202424896) |
 |:---:|:---:|:---:|
-|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7439567495) |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://tgdh.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
+|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://tgdh.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqi5173)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sese5173) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwang5173)|
 | [![彩虹群发破解版/飞机/电报Telegram tdata/低价TG账号/TDATA/电脑直登/直登号tdata/协议号](https://i.imgur.com/1CsNGPN.jpeg)<br>电报稀缺资源大全中文搜索](https://t.me/tgxqzy)| [![Telegram 会员代开三个月/ 半年/ 一年自助开通会员机器人/电报会员/开通电报会员/电报会员代开/Telegram会员/Telegram会员代开](https://i.imgur.com/VmOOpNO.png)<br>全网最低价自助开通电报会员](https://t.me/kttgvip_bot) |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
 <!-- END_REPLACE_SECTION -->
@@ -69,7 +69,7 @@
 | ------------------------------------------ | ------------------------------------------------- | --------------- |
 | 自动上传脚本                                | 提供源码及搭建服务，效果查看：[@dysyg](https://t.me/dysyg)          | 50U             |
 | 修女频道搬运                                | 搬运整个频道10U,自行联系[@banyunpindao](https://t.me/banyunpindao) | 10U   |
-| 自动转发频道机器人                          | 自动搬运别人频道内容,提供源码及搭建服务 | 100U            |
+| 自动转发频道机器人(涨粉神器)                          | 自动监听搬运别人频道内容,提供源码及搭建服务[@banyunpindao](https://t.me/banyunpindao) | 100U            |
 | 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
 | 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 软件下载地址:[网盘地址](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw),使用教程:[视频教程](https://www.youtube.com/watch?v=t09ZIz3k-i4),购买联系:[@caihongbuybot](https://t.me/caihongbuybot) | 30U             |
 <div style="display: flex; justify-content: space-between;">
