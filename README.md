@@ -22,11 +22,11 @@
 </div>
 
 <!-- BEGIN_REPLACE_SECTION -->
-| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7439567495) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7439567495) |
+| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7737195905) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7737195905) |
 |:---:|:---:|:---:|
-|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7439567495) |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://tgdh.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
+|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7737195905) |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://tgdh.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqi5173)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sese5173) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwang5173)|
-| [![彩虹群发破解版](https://i.imgur.com/1CsNGPN.jpeg)<br>电报稀缺资源大全中文搜索](https://t.me/tgxqzy)| [![飞机/电报Telegram tdata/低价TG账号/TDATA/电脑直登/直登号tdata/协议号](https://i.imgur.com/WM2MkgS.png)<br>全自动频道搬运/监听转发](https://t.me/tdataman) |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
+| [![彩虹群发破解版/飞机/电报Telegram tdata/低价TG账号/TDATA/电脑直登/直登号tdata/协议号](https://i.imgur.com/1CsNGPN.jpeg)<br>电报稀缺资源大全中文搜索](https://t.me/tgxqzy)| [![Telegram 会员代开三个月/ 半年/ 一年自助开通会员机器人/电报会员/开通电报会员/电报会员代开/Telegram会员/Telegram会员代开](https://i.imgur.com/VmOOpNO.png)<br>全网最低价自助开通电报会员](https://t.me/kttgvip_bot) |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
 <!-- END_REPLACE_SECTION -->
 </table>
 
@@ -36,7 +36,7 @@
 | **🎯Telegram频道群组导航站🎯** | [https://tgdh.github.io](https://tgdh.github.io) |
 | **🔥全国找妹子🔥**  | [https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9) |
 | **🔥全国找妹纸🔥**  | [https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl) |
-| **❤雅雅❤**      | [https://t.me/ashdsh666666](https://t.me/ashdsh666666) |
+| **❤雅雅(希望遇到有缘人)❤**      | [https://t.me/jhjwdf11118888](https://t.me/jhjwdf11118888) |
 | **🛫飞机电报低价直登号tdata/协议号session🛫**         | [https://t.me/tdataman](https://t.me/tdataman)(0.5U一个直登号协议号，量大价格更低) |
 
 ### 推荐
@@ -50,34 +50,32 @@
 | 🔥 极搜20万人搜索群   | [https://t.me/jisou200000](https://t.me/jisou200000) | 热门搜索群，涵盖多种资源       |
 | 🔥 资源搜索          | [https://t.me/resource4](https://t.me/resource4) | 提供多类型的资源搜索功能      |
 | 🔥 稀缺资源搜索      | [https://t.me/sosobo2](https://t.me/sosobo2) | 提供稀缺资源的专门搜索        |
-| 🔥 神马搜索         | [https://t.me/smss](https://t.me/smss)       | 提供快速资源搜索服务          |
-| 🔥 aiso中文搜索     | [https://t.me/aiso](https://t.me/aiso)       | 中文资源搜索引擎             |
+| 🔥 神马搜索         | [https://t.me/smss](https://t.me/smss?start=spread_7202424896)       | 提供快速资源搜索服务          |
+| 🔥 aiso中文搜索     | [https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)       | 中文资源搜索引擎             |
 | 🔥 哆啦A梦软件App| [https://t.me/dlamapp](https://t.me/dlamapp) | 各种软件、App和VPN破解资源    |
+| 🔥 色瓜中心| [https://t.me/seguazhongxin](https://t.me/seguazhongxin) | 分享全网第一热瓜|
 | 🔥 全网直播回放      | [https://t.me/luzhiob](https://t.me/luzhiob)   | 直播回放资源，涵盖抖音、斗鱼等  |
 | 🎥 阿里云盘4K高清资源  | [https://t.me/alidriver4k](https://t.me/alidriver4k) | 阿里云盘的4K高清资源分享      |
 | 🔥 国内大流量卡       | [https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024) | 29元200G大流量卡信息         |
 | 🔥 奈飞小铺         | [https://ihezu.fans](https://ihezu.fans)     | 提供Spotify、网飞等平台的拼车服务 |
 | 🔥 环球巴士         | [https://universalbus.cn](https://universalbus.cn) | 全球一站式合租平台，支持多平台  |
-| 🔞 推特女菩萨      | [https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl) | 提供推特女神相关的资源       |
-| 🔞 女神聚集地       | [https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1) | 各类女神资源汇集平台         |
-| 🔞 不良少女         | [https://t.me/+JSktL905RudlZmVl](https://t.me/+JSktL905RudlZmVl) | 提供不良少女相关资源分享     |
-| 🔞 女大学生         | [https://t.me/+xys36k-y9Rk2OTQx](https://t.me/+xys36k-y9Rk2OTQx) | 交友相关资源分享     |
-
-如果需要调整展示内容或添加更多频道，请告诉我。
+| 🔞 推特女菩萨      | [https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)  |  骗子    |
+| 🔞 女神聚集地       | [https://t.me/+fnN-ekSxyzNlYTY1](https://t.me/+fnN-ekSxyzNlYTY1) |    骗子  |
+| 🔞 不良少女         | [https://t.me/+JSktL905RudlZmVl](https://t.me/+JSktL905RudlZmVl) |      骗子|
+| 🔞 女大学生         | [https://t.me/+bP2C6wrFOjxkMTVk](https://t.me/+bP2C6wrFOjxkMTVk) |      骗子|
 
 ### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
 | 项目                                       | 说明                                              | 价格            |
 | ------------------------------------------ | ------------------------------------------------- | --------------- |
-| 自动上传脚本                                | 提供源码及搭建服务，效果查看：[@dysyg](#)          | 50U             |
-| 破解频道/群组不允许转发内容                | 提供源码及搭建服务，效果查看：[@pdgbbot](#)        | 50U             |
-| 修女频道搬运                                | 搬运整个频道10U,自行联系[@banyunpindao](#) | 10U   |
-| 自动转发频道机器人                          | 自动搬运别人频道内容,提供源码及搭建服务 | 100U            |
+| 自动上传脚本                                | 提供源码及搭建服务，效果查看：[@dysyg](https://t.me/dysyg)          | 50U             |
+| 修女频道搬运                                | 搬运整个频道10U,自行联系[@banyunpindao](https://t.me/banyunpindao) | 10U   |
+| 自动转发频道机器人(涨粉神器)                          | 自动监听搬运别人频道内容,提供源码及搭建服务[@banyunpindao](https://t.me/banyunpindao) | 100U            |
 | 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
 | 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 软件下载地址:[网盘地址](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw),使用教程:[视频教程](https://www.youtube.com/watch?v=t09ZIz3k-i4),购买联系:[@caihongbuybot](https://t.me/caihongbuybot) | 30U             |
 <div style="display: flex; justify-content: space-between;">
-  <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹1" style="width: 30%;"/>
-  <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹2" style="width: 30%;"/>
-  <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹3" style="width: 30%;"/>
+  <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹群发器破解版免费" style="width: 30%;"/>
+  <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹群发器破解版" style="width: 30%;"/>
+  <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹群发电报神器" style="width: 30%;"/>
 </div>
 
 ### 会员 | 能量租赁机器人 【可找我代充36U/年，比机器人要便宜】
@@ -176,8 +174,6 @@
 | **Ave机器人**   | -                    | [Ave机器人](https://t.me/AveSniperBot?start=ref_tgldy) |
 | **Dbot**        | -                    | [Dbot](https://t.me/sol_dbot?start=ref_18442256) |
 | **龙枪**        | -                    | [龙枪](https://t.me/dragun69?start=rich6d8dab5533a2) |
-
-如果需要进一步修改或调整，请告诉我。
 
 ### 常用机器人
 
