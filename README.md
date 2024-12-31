@@ -37,7 +37,7 @@
 | **🔥全国找妹子🔥**  | [https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9) |
 | **🔥全国找妹纸🔥**  | [https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl) |
 | **❤雅雅(希望遇到有缘人)❤**      | [https://t.me/jhjwdf11118888](https://t.me/jhjwdf11118888) |
-| **🛫飞机电报低价直登号tdata/协议号session🛫**         | [https://t.me/tdataman](https://t.me/tdataman)(0.5U一个直登号协议号，量大价格更低) |
+| **🌈彩虹群发器**         | [https://t.me/autocaihongbot](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)(机器人自助购买) |
 
 ### 推荐
 
