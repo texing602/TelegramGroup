@@ -17,7 +17,7 @@
 电报中文昵称也就是汉字❗️请点击以下机器人免费领取USDT❗️<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether),数量有限先到先得
 
-商务合作：[sobot1024@gmail.com](mailto:sobot1024@gmail.com)或[@tghzsx_bot](https://t.me/tghzsx_bot)
+商务合作：[@tghzsx_bot](https://t.me/tghzsx_bot)
 
 </div>
 
@@ -34,8 +34,6 @@
 |-----------------|---------------------------------------------------|
 | **🛫机场VPN导航站🛫** | [https://jichangvpn.github.io](https://jichangvpn.github.io) |
 | **🎯Telegram频道群组导航站🎯** | [https://tgdh.github.io](https://tgdh.github.io) |
-| **🔥全国找妹子🔥**  | [https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9) |
-| **🔥全国找妹纸🔥**  | [https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl) |
 | **🌈彩虹群发器🌈**         | [https://t.me/autocaihongbot](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)(机器人自助购买) |
 
 ### 推荐
