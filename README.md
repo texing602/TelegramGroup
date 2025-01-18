@@ -34,6 +34,7 @@
 |-----------------|---------------------------------------------------|
 | **🛫机场VPN导航站🛫** | [https://jichangvpn.github.io](https://jichangvpn.github.io) |
 | **🎯Telegram频道群组导航站🎯** | [https://tgdh.github.io](https://tgdh.github.io) |
+| **🎯Telegram频道群组导航站🎯** | [https://telegramchannels.github.io](https://telegramchannels.github.io) |
 | **🌈彩虹群发器🌈**         | [https://t.me/autocaihongbot](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)(机器人自助购买) |
 | **🔥全国找妹子🔥**  | [https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9) |
 | **🔥全国找妹纸🔥**  | [https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl) |
