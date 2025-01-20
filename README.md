@@ -22,9 +22,9 @@
 </div>
 
 <!-- BEGIN_REPLACE_SECTION -->
-| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7737195905) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7202424896) |
+| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7704234080) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7704234080) |
 |:---:|:---:|:---:|
-|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7737195905) |  [![Telegram频道导航/TG导航/Telegram频道推荐/Telegram导航/频道导航/电报导航/电报推荐/TG推荐](https://i.imgur.com/31YFV0f.png)<br>Telegram频道导航](https://tgdh.github.io) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
+|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7704234080) |  [![Telegram频道导航/TG导航/Telegram频道推荐/Telegram导航/频道导航/电报导航/电报推荐/TG推荐](https://i.imgur.com/31YFV0f.png)<br>Telegram频道导航](https://tgdh.github.io) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7704234080)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqi520)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/chengrendaohang520) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsousuo520)|
 | [![彩虹群发破解版/飞机/电报Telegram tdata/低价TG账号/TDATA/电脑直登/直登号tdata/协议号](https://i.imgur.com/SEd6n5H.png)<br>电报稀缺资源大全中文搜索](https://t.me/zysoso)|  [![彩虹群发器/彩虹群发/彩虹群发器破解版](https://i.imgur.com/6a8Zz9h.png)<br>彩虹群发器破解版](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)  |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
 <!-- END_REPLACE_SECTION -->
@@ -1190,4 +1190,572 @@
 *   奈飞小铺:[https://t.me/netflix_bus](https://t.me/netflix_bus)
 *   奈菲影视:[https://t.me/nfnfgroup](https://t.me/nfnfgroup)
 *   4K 影视资源:[https://t.me/Remux_2160P](https://t.me/Remux_2160P)
-*   4K 影视屋
+*   4K 影视屋 - 蓝光无损电影:[https://t.me/dianying4K](https://t.me/dianying4K)
+*   Emby 影视资源发布:[https://t.me/Plus_Movie_Best](https://t.me/Plus_Movie_Best)
+*   卷毛鼠 - 影视频道:[https://t.me/CurlyMouse](https://t.me/CurlyMouse)
+*   好莱坞影视:[https://t.me/HLWYS](https://t.me/HLWYS)
+*   电影爱好者:[https://t.me/MovieAnywhere](https://t.me/MovieAnywhere)
+*   音乐库:[https://t.me/MusicSharePlatform](https://t.me/MusicSharePlatform)
+*   网络资源共享库:[https://t.me/Sharedspace](https://t.me/Sharedspace)
+*   YouTube-ImShuker 文件及公告:[https://t.me/shukerxiaoxi](https://t.me/shukerxiaoxi)
+*   电报时报:[https://t.me/times001](https://t.me/times001)
+*   PUSH 科技快讯:[https://t.me/Pushings](https://t.me/Pushings)
+*   逆风社:[https://t.me/nifengpress](https://t.me/nifengpress)
+*   新纪元 新闻中心:[https://t.me/xinjiyuan9](https://t.me/xinjiyuan9)
+*   吾爱资源 薅羊毛・资讯中心:[https://t.me/Pojieapp](https://t.me/Pojieapp)
+*   🎏「 彼岸情报🔎！」🎏薅羊毛情报见闻社:[https://t.me/BaccanoSoul](https://t.me/BaccanoSoul)
+*   此岸情报局:[https://t.me/JustReformation](https://t.me/JustReformation)
+*   🅻ihaiba 资源羊毛分享🍭:[https://t.me/lihaiba](https://t.me/lihaiba)
+*   频道🏆资源福利分享:[https://t.me/freemorebest](https://t.me/freemorebest)
+*   推特|OnlyFans女菩萨:[https://t.me/xnvpux](https://t.me/xnvpux)
+*   Google Play 限免信息:[https://t.me/playsales](https://t.me/playsales)
+*   扫地僧笔记:[https://t.me/lover_links](https://t.me/lover_links)
+*   Science:[https://t.me/science](https://t.me/science)
+*   Gif Center:[https://t.me/gifcenter](https://t.me/gifcenter)
+*   Wallpapers:[https://t.me/AR72014](https://t.me/AR72014)
+*   Wallpapers/Обои:[https://t.me/EZwalls](https://t.me/EZwalls)
+*   Wallpapers By Arthwork:[https://t.me/arthwork](https://t.me/arthwork)
+*   Wallpapers And Art:[https://t.me/pfff_wall](https://t.me/pfff_wall)
+*   壁纸 wallpapers:[https://t.me/bizhi123](https://t.me/bizhi123)
+*   Hk3ToN:[https://t.me/Hk3To](https://t.me/Hk3To)
+*   Wallpaper@Winn 手工壁纸分享:[https://t.me/WallpaperWinn](https://t.me/WallpaperWinn)
+*   最美壁纸 © 极简派:[https://t.me/yidu520](https://t.me/yidu520)
+*   iWallpaper PC:[https://t.me/iWallpaperPC](https://t.me/iWallpaperPC)
+*   Dynamic Wallpaper Club:[https://t.me/dynamicwallpaperclub](https://t.me/dynamicwallpaperclub)
+*   Tech Guide:[https://t.me/TechGuide](https://t.me/TechGuide)
+*   Boring Class:[https://t.me/BoringClass](https://t.me/BoringClass)
+*   Think Positive Words:[https://t.me/thinkpositivewords](https://t.me/thinkpositivewords)
+*   乙烷日报:[https://t.me/OverDaily](https://t.me/OverDaily)
+*   LetITFly News:[https://t.me/LetITFlyW](https://t.me/LetITFlyW)
+*   安全上网，注意事项:[https://t.me/anquanshangwang](https://t.me/anquanshangwang)
+*   竹新社:[https://t.me/tnews365](https://t.me/tnews365)
+*   竹新资料库:[https://t.me/kt_database](https://t.me/kt_database)
+*   海外媒体的中文新闻:[https://t.me/chinanews001](https://t.me/chinanews001)
+*   《維基人》官方推播頻道:[https://t.me/the_Wikipedian](https://t.me/the_Wikipedian)
+*   中文維基新聞廣播頻道:[https://t.me/wikinews_zh_broadcast](https://t.me/wikinews_zh_broadcast)
+*   Reuters:World:[https://t.me/ReutersWorldChannel](https://t.me/ReutersWorldChannel)
+*   每日沙雕墙:[https://t.me/woshadiao](https://t.me/woshadiao)
+*   糗事百科:[https://t.me/qiushibaike](https://t.me/qiushibaike)
+*   PUSH 科学快讯:[https://t.me/pushings](https://t.me/pushings)
+*   少数人知道的消息:[https://t.me/csrinfo](https://t.me/csrinfo)
+*   科技圈的日常:[https://t.me/misakatech](https://t.me/misakatech)
+*   免費資源網路社群 Free Group:[https://t.me/Free_Group](https://t.me/Free_Group)
+*   好物・羊毛收割机:[https://t.me/ZH_wool](https://t.me/ZH_wool)
+*   Λ-Reading:[https://t.me/GoReading](https://t.me/GoReading)
+*   网络安全中心:[https://t.me/tgdailigg](https://t.me/tgdailigg)
+*   iOS 越狱插件更新信息:[https://t.me/Jailbreak_Tweaks](https://t.me/Jailbreak_Tweaks)
+*   Jailbreak Notifications:[https://t.me/jailbreaknotifications](https://t.me/jailbreaknotifications)
+*   Cydia Updates:[https://t.me/cydiaupdate](https://t.me/cydiaupdate)
+*   Spotify News:[https://t.me/spotifynews](https://t.me/spotifynews)
+*   全网福利收集:[https://t.me/AlltheChannel](https://t.me/AlltheChannel)
+*   每日 AWESOME 观察:[https://t.me/awesomeopensource](https://t.me/awesomeopensource)
+*   IT 那点事:[https://t.me/InternetNewsCN](https://t.me/InternetNewsCN)
+*   即刻精选:[https://t.me/jike_collection](https://t.me/jike_collection)
+*   机场防御测压实验室:[https://t.me/ssrcy](https://t.me/ssrcy)
+*   XDDOS 压力测试:[https://t.me/xddos2](https://t.me/xddos2)
+*   悟空干货集中营:[https://t.me/daily5kong](https://t.me/daily5kong)
+*   LIFETIME 视界:[https://t.me/lifetimecn](https://t.me/lifetimecn)
+*   Cloudflare 在中国频道:[https://t.me/Cloudflare_CN](https://t.me/Cloudflare_CN)
+*   PT 资讯频道:[https://t.me/privatetrackernews](https://t.me/privatetrackernews)
+*   Iyouport:[https://t.me/iyouport](https://t.me/iyouport)
+*   o1xhack & friends🥤 分享 思考 科技 生活:[https://t.me/o1xinsight](https://t.me/o1xinsight)
+*   Newlearner の自留地:[https://t.me/NewlearnerChannel](https://t.me/NewlearnerChannel)
+*   NewlearnerのIT社群:[https://t.me/NewlearnerGroup](https://t.me/NewlearnerGroup)
+*   Awesome Collection:[https://t.me/awesome_collection](https://t.me/awesome_collection)
+*   Picacomic News:[https://t.me/PicACG](https://t.me/PicACG)
+*   Apple Tech News:[https://t.me/appletechnews](https://t.me/appletechnews)
+*   Android Weekly Update:[https://t.me/update4weekly](https://t.me/update4weekly)
+*   码力全开工作室:[https://t.me/maliquankai](https://t.me/maliquankai)
+*   数字移民:[https://t.me/shuziyimin](https://t.me/shuziyimin)
+*   路透中文网:[https://t.me/lutouzhongwen_rss](https://t.me/lutouzhongwen_rss)
+*   纽约时报:[https://t.me/niuyueshibao_rss](https://t.me/niuyueshibao_rss)
+*   美国之音:[https://t.me/meiguozhiyin_rss](https://t.me/meiguozhiyin_rss)
+*   知乎日报:[https://t.me/zhihuribao_rss](https://t.me/zhihuribao_rss)
+*   BBC 中文:[https://t.me/bbczhongwen_rss](https://t.me/bbczhongwen_rss)
+*   FT 中文网:[https://t.me/ftzhongwen_rss](https://t.me/ftzhongwen_rss)
+*   双语新闻:[https://t.me/shuangyunews_rss](https://t.me/shuangyunews_rss)
+*   法国 国际广播电台:[https://t.me/rfi_rss](https://t.me/rfi_rss)
+*   德国 德国之声:[https://t.me/dw_rss](https://t.me/dw_rss)
+*   澳大利亚 广播公司:[https://t.me/abc_rss](https://t.me/abc_rss)
+*   俄罗斯 卫星通讯社:[https://t.me/ru_rss](https://t.me/ru_rss)
+*   新加坡 联合早报:[https://t.me/sg_rss](https://t.me/sg_rss)
+*   韩国 中央日报:[https://t.me/korea_rss](https://t.me/korea_rss)
+*   日本 日经中文网:[https://t.me/jp_rss](https://t.me/jp_rss)
+*   台湾香港 当地日报:[https://t.me/ttww_rss](https://t.me/ttww_rss)
+*   每日早间新闻:[https://t.me/zaobaoNews](https://t.me/zaobaoNews)
+*   经济信息联播:[https://t.me/eco_cn](https://t.me/eco_cn)
+*   Learn SwiftUI:[https://t.me/learnswiftui](https://t.me/learnswiftui)
+*   媒奇葩说:[https://t.me/mtalk](https://t.me/mtalk)
+*   看理想 vistopia:[https://t.me/ikanlixiang](https://t.me/ikanlixiang)
+*   Streaming Link Station:[https://t.me/streaming_link_station](https://t.me/streaming_link_station)
+*   方可成的新闻实验室:[https://t.me/newslab2020](https://t.me/newslab2020)
+*   Wolley News:[https://t.me/wolleynews](https://t.me/wolleynews)
+*   Justf News:[https://t.me/justfNew](https://t.me/justfNew)
+*   Hacker News:[https://t.me/hacker_news_feed](https://t.me/hacker_news_feed)
+*   NewMobileLife:[https://t.me/newmobilelife](https://t.me/newmobilelife)
+*   國家地理雜誌 中文版:[https://t.me/natgeomedia](https://t.me/natgeomedia)
+*   你有一个打折需要了解:[https://t.me/SteamNy](https://t.me/SteamNy)
+*   Emby 全能服务器体验（嘎鱼饭）:[https://t.me/gayufan](https://t.me/gayufan)
+*   Trending Stickers:[https://t.me/TrendingStickers](https://t.me/TrendingStickers)
+*   KAIX.IN:[https://t.me/kaix_in](https://t.me/kaix_in)
+*   TSBBLOG:[https://t.me/tsbblog](https://t.me/tsbblog)
+*   中文播客精选:[https://t.me/greatpodcasts](https://t.me/greatpodcasts)
+*   每日一歌:[https://t.me/dailymusich](https://t.me/dailymusich)
+*   音乐世界:[https://t.me/lumingguandj](https://t.me/lumingguandj)
+*   中文社科讲座资讯:[https://t.me/chwebinars](https://t.me/chwebinars)
+*   【ZERO】安全运营（DevSecOps）:[https://t.me/zero_devsecops](https://t.me/zero_devsecops)
+*   小报频道:[https://t.me/FQnews](https://t.me/FQnews)
+*   维生素 E:[https://t.me/vitamineEpodcast](https://t.me/vitamineEpodcast)
+*   Beta News:[https://t.me/appbetanews](https://t.me/appbetanews)
+*   geekhub 苹果团:[https://t.me/geekhub_com](https://t.me/geekhub_com)
+*   Hardcore English Channel:[https://t.me/hardcorengch](https://t.me/hardcorengch)
+*   TikTok 抖音短视频:[https://t.me/TiktokA3](https://t.me/TiktokA3)
+*   阿里云盘:[https://t.me/YunPanPan](https://t.me/YunPanPan)
+*   阿里云盘资源发布频道:[https://t.me/shareAliyun](https://t.me/shareAliyun)
+*   二手🐴:[https://t.me/SecHorse](https://t.me/SecHorse)
+*   用爱发电俱乐部:[https://t.me/NotionFans](https://t.me/NotionFans)
+
+
+###### 其他
+
+*   频道 / 群组 / 机器人分享:[https://t.me/hao123f](https://t.me/hao123f)
+*   Animated Stickers:[https://t.me/AnimatedStickers](https://t.me/AnimatedStickers)
+*   Animated Emojis:[https://t.me/AnimatedEmojis](https://t.me/AnimatedEmojis)
+*   本土創作的貼圖:[https://t.me/LocalStickers](https://t.me/LocalStickers)
+*   Stickers Channel:[https://t.me/stickersChannel](https://t.me/stickersChannel)
+*   ACG Stickers:[https://t.me/ACGStickers](https://t.me/ACGStickers)
+*   TestFlight News:[https://t.me/testflights](https://t.me/testflights)
+*   My Desctop（Cool 4k, HD wallpapers）:[https://t.me/PhoneDesctop](https://t.me/PhoneDesctop)
+*   Gramip Channel:[https://t.me/Gramip](https://t.me/Gramip)
+*   秘密文摘:[https://t.me/secretofbody_degist](https://t.me/secretofbody_degist)
+*   Sync 资源更新:[https://t.me/shenkey](https://t.me/shenkey)
+*   zrj766 的频道:[https://t.me/zrj96](https://t.me/zrj96)
+*   Host Testing and evaluation:[https://t.me/HostEvaluate](https://t.me/HostEvaluate)
+*   Free 網絡信息自由門:[https://t.me/todayfreedom](https://t.me/todayfreedom)
+*   Ingress 中文:[https://t.me/IngressChinese](https://t.me/IngressChinese)
+*   Ingress Chengdu&Chongqing:[https://t.me/IngressChengduChongqing](https://t.me/IngressChengduChongqing)
+*   FindYanot Ch:[https://t.me/findyanotch](https://t.me/findyanotch)
+*   豆瓣精选:[https://t.me/douban_read](https://t.me/douban_read)
+*   文杏馆（藏书分享）:[https://t.me/BooksThatMakeYouThink](https://t.me/BooksThatMakeYouThink)
+*   【程序员之家】软件项目百例:[https://t.me/useless_project_ideas](https://t.me/useless_project_ideas)
+*   好书分享:[https://t.me/haoshufenxiang](https://t.me/haoshufenxiang)
+*   每周一书:[https://t.me/weekly_books](https://t.me/weekly_books)
+*   ZBook，精品电子书:[https://t.me/ziyuanfeng59](https://t.me/ziyuanfeng59)
+*   ReadFine 电子书屋:[https://t.me/Readfine](https://t.me/Readfine)
+*   计算机与部分其他种类书籍资源:[https://t.me/bookusefor2](https://t.me/bookusefor2)
+*   计算机类书籍:[https://t.me/bookusefor3](https://t.me/bookusefor3)
+*   编程随想推荐书籍（非官方）:[https://t.me/programthinkbooks](https://t.me/programthinkbooks)
+*   電書攤Ƹ̵̡Ӝ̵̨Ʒ:[https://t.me/telebookstall](https://t.me/telebookstall)
+*   好书分享频道:[https://t.me/haoshufenxiang](https://t.me/haoshufenxiang)
+*   山巅出版社:[https://t.me/shandian2084](https://t.me/shandian2084)
+*   zread (推) - 什么书值得读:[https://t.me/zreadpush](https://t.me/zreadpush)
+*   微信搬运工:[https://t.me/WeChatEssence](https://t.me/WeChatEssence)
+*   蛋挞报:[https://t.me/pincongessence](https://t.me/pincongessence)
+*   台湾的一个可爱 Sticker Channel:[https://t.me/sticker_tw](https://t.me/sticker_tw)
+*   发猫频道猫奴必备:[https://t.me/miaowu](https://t.me/miaowu)
+*   今天 tg 打掉了几个 ISIS bot:[https://t.me/ISISwatch](https://t.me/ISISwatch)
+*   老毛子 Padavan 固件发布:[https://t.me/pdcn1](https://t.me/pdcn1)
+*   老毛子 Padavan 固件纯净交流群:[https://t.me/pdcn0](https://t.me/pdcn0)
+*   eSir Playground 固件 & 插件发布频道:[https://t.me/joinchat/AAAAAE-8dVyO8ljrgQ5yCw](https://t.me/joinchat/AAAAAE-8dVyO8ljrgQ5yCw)
+*   图拉鼎的所见、所闻、所想:[https://t.me/tualatrix_says](https://t.me/tualatrix_says)
+*   Better Naming:[https://t.me/rebornix](https://t.me/rebornix)
+*   某不科学的 DIYgod:[https://t.me/awesomeDIYgod](https://t.me/awesomeDIYgod)
+*   Kindle 电子书降价信息:[https://t.me/kindlePrice](https://t.me/kindlePrice)
+*   Kindle 特价书:[https://t.me/KindleBookDeals](https://t.me/KindleBookDeals)
+*   亚马逊 Amazon 每日热销、降价榜:[https://t.me/amazonhotevery](https://t.me/amazonhotevery)
+*   Amazon 降价信息:[https://t.me/amazondrop](https://t.me/amazondrop)
+*   Premium 🇵 🇷 🇴💀:[https://t.me/Premiumpro](https://t.me/Premiumpro)
+*   饭否每日精选:[https://t.me/fanfou_daily](https://t.me/fanfou_daily)
+*   饭否每周精选:[https://t.me/fanfou_weekly](https://t.me/fanfou_weekly)
+*   Scale system:[https://t.me/scalesystem](https://t.me/scalesystem)
+*   一任阶前点滴到天明:[https://t.me/hearrain](https://t.me/hearrain)
+*   Inbox 收集箱:[https://t.me/inbox_all](https://t.me/inbox_all)
+*   冷眼向洋:[https://t.me/lengyanxiangyang](https://t.me/lengyanxiangyang)
+*   Dribbble Popular Design 每日流行设计:[https://t.me/designtaalk](https://t.me/designtaalk)
+*   Google Voice 靓号:[https://t.me/voice_google](https://t.me/voice_google)
+*   Jailbreak News:[https://t.me/jailbreaknotifications](https://t.me/jailbreaknotifications)
+*   看看就好:[https://t.me/swiminthedream](https://t.me/swiminthedream)
+*   荔枝木:[https://t.me/lychee_wood](https://t.me/lychee_wood)
+*   每日摄影观察:[https://t.me/cnphotog_collect](https://t.me/cnphotog_collect)
+*   GroupOwnerBots:[https://t.me/GroupOwnerBots](https://t.me/GroupOwnerBots)
+*   一休儿的哲学讲座:[https://t.me/yixiuer](https://t.me/yixiuer)
+*   小破不入渠:[https://t.me/forwardlikehell](https://t.me/forwardlikehell)
+*   Netflix 高分好剧推介:[https://t.me/NetflixFans](https://t.me/NetflixFans)
+*   Netflix 影片介绍:[https://t.me/NetflixFirst](https://t.me/NetflixFirst)
+*   RARTV:[https://t.me/rartv](https://t.me/rartv)
+*   财经快讯:[https://t.me/fnnew](https://t.me/fnnew)
+*   黑洞资源共享:[https://t.me/tieliu](https://t.me/tieliu)
+*   SitandRelax’s Channel~NSFW:[https://t.me/SitandRelaxLabs](https://t.me/SitandRelaxLabs)
+*   Jerry Zhāng 的频道:[https://t.me/JerryZhang](https://t.me/JerryZhang)
+*   SaoDaye - TG 频道:[https://t.me/infosaodaye](https://t.me/infosaodaye)
+*   EMK Public Channel:[https://t.me/JacobEMK](https://t.me/JacobEMK)
+*   摄神取念:[https://t.me/Legolimens](https://t.me/Legolimens)
+*   For Work 系列 - 梗频道:[https://t.me/JISFW](https://t.me/JISFW)
+*   For Work 系列 - 图频道:[https://t.me/GfWR16](https://t.me/GfWR16)
+*   For Work 系列 - 读频道:[https://t.me/NewsFW](https://t.me/NewsFW)
+*   For Work 系列 - 妹频道:[https://t.me/GFW3DS](https://t.me/GFW3DS)
+*   For Work 系列 - NLP 频道:[https://t.me/NLPfW](https://t.me/NLPfW)
+*   For Work 系列 - 轨道群:[https://t.me/RailwayFW](https://t.me/RailwayFW)
+*   Sukka’s Notebook:[https://t.me/SukkaChannel](https://t.me/SukkaChannel)
+*   David’s YouTube 频道推荐:[https://t.me/davidsyoutube](https://t.me/davidsyoutube)
+*   tesla 特斯拉 / 科技 NEWS:[https://t.me/Tesla_share](https://t.me/Tesla_share)
+*   搞机日记:[https://t.me/gcjiriji](https://t.me/gcjiriji)
+*   烤苹果 (专业收集 bug):[https://t.me/AppleCooked](https://t.me/AppleCooked)
+*   Foolish TraceWind:[https://t.me/FoolishTraceWind](https://t.me/FoolishTraceWind)
+*   tg 机器人推荐:[https://t.me/tgbotlist](https://t.me/tgbotlist)
+*   物与民胞:[https://t.me/unicorn4kk](https://t.me/unicorn4kk)
+*   DLK 搞笑趣闻情报站:[https://t.me/dlkqingbaozhan](https://t.me/dlkqingbaozhan)
+*   毒奶频道 🅥 limboPro.xyz:[https://t.me/limboprossr](https://t.me/limboprossr)
+*   OurBits RSS 频道:[https://t.me/OurBits_RSS](https://t.me/OurBits_RSS)
+*   ZUOLUOTV 官方频道:[https://t.me/zuoluotvofficial](https://t.me/zuoluotvofficial)
+*   不求甚解:[https://t.me/fakeye](https://t.me/fakeye)
+*   煎蛋无聊图:[https://t.me/jiandan_bored](https://t.me/jiandan_bored)
+*   上班划水之沙雕图:[https://t.me/goworkbitch](https://t.me/goworkbitch)
+*   美图与沙雕:[https://t.me/shadiaotu](https://t.me/shadiaotu)
+*   心惊报:[https://t.me/xinjingdaily](https://t.me/xinjingdaily)
+*   微博热搜:[https://t.me/weibo_hot](https://t.me/weibo_hot)
+*   土味生活:[https://t.me/tuweishenghuo](https://t.me/tuweishenghuo)
+*   初恋的感觉:[https://t.me/chuliandeganjue](https://t.me/chuliandeganjue)
+*   笑掉大牙:[https://t.me/xiaodiaodaya](https://t.me/xiaodiaodaya)
+*   Zapro Notice:[https://t.me/zaproshare](https://t.me/zaproshare)
+*   The Sociologist:[https://t.me/thesoc](https://t.me/thesoc)
+*   科技无意义:[https://t.me/technical_with_love](https://t.me/technical_with_love)
+*   𝐕 𝐀 𝐆 𝐔 𝐄 - 針:[https://t.me/oz_sensei](https://t.me/oz_sensei)
+*   Sean:[https://t.me/SeanChannel](https://t.me/SeanChannel)
+*   Outvivid:[https://t.me/outvivid](https://t.me/outvivid)
+*   Reuters: World:[https://t.me/ReutersWorldChannel](https://t.me/ReutersWorldChannel)
+*   zrj766 的频道:[https://t.me/zrj96](https://t.me/zrj96)
+*   IMG2D:[https://t.me/IMG2D](https://t.me/IMG2D)
+*   PT 资讯频道:[https://t.me/privatetrackernews](https://t.me/privatetrackernews)
+*   Rachel 碎碎念:[https://t.me/RachelBlahblah](https://t.me/RachelBlahblah)
+*   Rachel 的消息发布站点:[https://t.me/RachelNotice](https://t.me/RachelNotice)
+*   Telegram China News:[https://t.me/tgchinanews](https://t.me/tgchinanews)
+*   📊 Polls Channel:https://t.me/polls_channel
+*   浅影随想:[https://t.me/lightFantasy](https://t.me/lightFantasy)
+*   杂物:[https://t.me/zaawuu](https://t.me/zaawuu)
+*   螺莉莉的黑板报:[https://t.me/im_RORIRI](https://t.me/im_RORIRI)
+*   锤子🔨丨网球🎾丨圈❎:[https://t.me/ThorHCC](https://t.me/ThorHCC)
+*   APPDO 数字生活指南:[https://t.me/appdodo](https://t.me/appdodo)
+*   资源垃圾佬:[https://t.me/allfree123](https://t.me/allfree123)
+*   老梁故事汇:[https://t.me/Laoliang666](https://t.me/Laoliang666)
+*   科学上网资源整合:[https://t.me/ysl_channel](https://t.me/ysl_channel)
+*   自留 𝙘𝙝𝙖𝙣𝙣𝙚𝙡 > 𝙢𝙖𝙞𝙘𝙤𝙤 / 𝙍𝙪𝙡𝙚𝙨:[https://t.me/who_channel](https://t.me/who_channel)
+*   美剧←→blahblah (& etc.):[https://t.me/mytvseries](https://t.me/mytvseries)
+*   All About RSS:[https://t.me/aboutrss](https://t.me/aboutrss)
+*   NS 新闻转报:[https://t.me/SwitchNewCN](https://t.me/SwitchNewCN)
+*   rynco libkadence:[https://t.me/rynif](https://t.me/rynif)
+*   庭说 TingTalk:[https://t.me/tingtalk](https://t.me/tingtalk)
+*   叨庭涂说 TingTalk Everything:[https://t.me/tingtalk_all](https://t.me/tingtalk_all)
+*   海贼王 One Piece 动漫更新提醒:[https://t.me/tingtalk_op](https://t.me/tingtalk_op)
+*   PDF 资料:[https://t.me/pdf_001](https://t.me/pdf_001)
+*   Apps 推广 / 抽奖 / 活动:[https://t.me/AppsSweepstakesNews](https://t.me/AppsSweepstakesNews)
+*   边走边吃的夏天:[https://t.me/deliciousxia](https://t.me/deliciousxia)
+*   moke 的 日常分享、吐槽和动态:[https://t.me/mokeyjay_channel](https://t.me/mokeyjay_channel)
+*   台灣蘋果同好群 - 佈告板:[https://t.me/TWAppleFansAnnounce](https://t.me/TWAppleFansAnnounce)
+*   烤苹果:[https://t.me/AppleCooked](https://t.me/AppleCooked)
+*   内核怕怕 - 辣鸡 Linux:[https://t.me/kernelscared](https://t.me/kernelscared)
+*   辣鸡咕鸽毁我信仰 #CurryMyLife:[https://t.me/googleshit](https://t.me/googleshit)
+*   TG… 药丸？:[https://t.me/tgpill](https://t.me/tgpill)
+*   食屎啦 Niantic:[https://t.me/shitofniantic](https://t.me/shitofniantic)
+*   如何与沙雕相处:[https://t.me/ruheyushadiaoxiangchu](https://t.me/ruheyushadiaoxiangchu)
+*   空空如也:[https://t.me/MomoKCH](https://t.me/MomoKCH)
+*   85.60×53.98 卡粉订阅 / 提醒:[https://t.me/DocOfCard](https://t.me/DocOfCard)
+*   小林君家里的托尔:[https://t.me/TooruchanNews](https://t.me/TooruchanNews)
+*   托尔酱的梗图与 FW:[https://t.me/TooruChan_Memes](https://t.me/TooruChan_Memes)
+*   一些干货:[https://t.me/youganhuo](https://t.me/youganhuo)
+*   豆瓣知乎简书微信公众号:[https://t.me/dbzhjs](https://t.me/dbzhjs)
+*   全球主流新闻媒体中文速览:[https://t.me/allzhnews](https://t.me/allzhnews)
+*   校长读报:[https://t.me/XiaoZhangDuBao](https://t.me/XiaoZhangDuBao)
+*   Godly Noob:[https://t.me/GodlyNews1](https://t.me/GodlyNews1)
+*   每天趣事:[https://t.me/Meitian](https://t.me/Meitian)
+*   奇趣百科:[https://t.me/qiqubaike](https://t.me/qiqubaike)
+*   硬核小卒:[https://t.me/yinghexiaozu](https://t.me/yinghexiaozu)
+*   电报中央电视台综合频道:[https://t.me/joinchat/AAAAAEhkwtQjONQXe--Z8g](https://t.me/joinchat/AAAAAEhkwtQjONQXe--Z8g)
+*   报道者:[https://t.me/tw_reporter_org](https://t.me/tw_reporter_org)
+*   性别偏见与性别议题:[https://t.me/daily_feminist](https://t.me/daily_feminist)
+*   每日文章精选:[https://t.me/daily_read](https://t.me/daily_read)
+*   行动派公民联盟:[https://t.me/citizen_united](https://t.me/citizen_united)
+*   Matters 閲讀精選:[https://t.me/MattersHub](https://t.me/MattersHub)
+*   灵感库:[https://t.me/uselessideas](https://t.me/uselessideas)
+*   中国纪录片:[https://t.me/chinesedocumentary](https://t.me/chinesedocumentary)
+*   👁‍🗨耳目💬:[https://t.me/earsandeyes](https://t.me/earsandeyes)
+*   品葱搬运:[https://t.me/pincongessence](https://t.me/pincongessence)
+*   重灌狂人:[https://t.me/briian](https://t.me/briian)
+*   赚客吧:[https://t.me/zuanke8](https://t.me/zuanke8)
+*   电报障害:[https://t.me/poorRideoReception](https://t.me/poorRideoReception)
+*   莼🐔8️⃣混:[https://t.me/eessej](https://t.me/eessej)
+*   📣文宣中国📣:[https://t.me/VoiceofCN](https://t.me/VoiceofCN)
+*   一方天地:[https://t.me/world2us](https://t.me/world2us)
+*   R.O.D.:[https://t.me/read_or_dead](https://t.me/read_or_dead)
+*   人间指南:[https://t.me/renjianzhinan_channel](https://t.me/renjianzhinan_channel)
+*   Classical Music:[https://t.me/exploreclassical](https://t.me/exploreclassical)
+*   小胖的日常分享:[https://t.me/bettergoods](https://t.me/bettergoods)
+*   Rynco 维护的版聊频道:[https://t.me/rynif](https://t.me/rynif)
+*   Die Lichtung 林間空地:[https://t.me/dieLichtung](https://t.me/dieLichtung)
+*   PhilTalk:[https://t.me/philchannel](https://t.me/philchannel)
+*   Soha 的日常:[https://t.me/sohadays](https://t.me/sohadays)
+*   CyanChannel:[https://t.me/CyanCh](https://t.me/CyanCh)
+*   咕 Billchen 咕:[https://t.me/billchenla](https://t.me/billchenla)
+*   pikapush:[https://t.me/pikapush](https://t.me/pikapush)
+*   Laoself:[https://t.me/laoself](https://t.me/laoself)
+*   诡异的鱼塘:[https://t.me/Memory_Of_Fish](https://t.me/Memory_Of_Fish)
+*   Reference Error:[https://t.me/reference_error](https://t.me/reference_error)
+*   Timmy Channel:[https://t.me/TimmyChannel](https://t.me/TimmyChannel)
+*   喵喵小喵喵:[https://t.me/MeowMiniMeow](https://t.me/MeowMiniMeow)
+*   FlyingSky’s Channel:[https://t.me/FlyingSky233](https://t.me/FlyingSky233)
+*   今天 abc 看了啥:[https://t.me/abcthoughts](https://t.me/abcthoughts)
+*   今日份的豆酱:[https://t.me/today_bean](https://t.me/today_bean)
+*   蛋挞观察室:[https://t.me/ijustseesee](https://t.me/ijustseesee)
+*   Arch Linux Chinese Messages:[https://t.me/archlinuxcn](https://t.me/archlinuxcn)
+*   Arch Linux Updates:[https://t.me/archlinuxcn_updates](https://t.me/archlinuxcn_updates)
+*   坐和放宽的碎碎念:[https://t.me/SitandRelaxW](https://t.me/SitandRelaxW)
+*   HEMC Tech Tips:[https://t.me/SitandRelaxLab](https://t.me/SitandRelaxLab)
+*   Polls Channel:[https://t.me/polls_channel](https://t.me/polls_channel)
+*   pikapush:[https://t.me/pikapush](https://t.me/pikapush)
+*   小林君家里的托尔 [Archived]:[https://t.me/TooruchanNews](https://t.me/TooruchanNews)
+*   托尔酱的梗图与 FW:[https://t.me/TooruChan_Memes](https://t.me/TooruChan_Memes)
+*   托尔随便拆拆:[https://t.me/TooruTeardowns](https://t.me/TooruTeardowns)
+*   一个自由的画室 (大概):[https://t.me/free_stusio](https://t.me/free_stusio)
+*   一个无聊透顶的频道 (大概）:[https://t.me/justAboringchannel](https://t.me/justAboringchannel)
+*   ctlee61 Preview:[https://t.me/hictlee61](https://t.me/hictlee61)
+*   傅 Sir 的船新世界:[https://t.me/newworldviafu](https://t.me/newworldviafu)
+*   Lymbo@碎碎念:[https://t.me/lymbo_chatting](https://t.me/lymbo_chatting)
+*   无籽水稻种植基地:[https://t.me/seedless_channel](https://t.me/seedless_channel)
+*   音游沙雕频道:[https://t.me/yingyoushadiao](https://t.me/yingyoushadiao)
+*   土间被活埋の公告板:[https://t.me/umr23333](https://t.me/umr23333)
+*   为也行:[https://t.me/weiyexing](https://t.me/weiyexing)
+*   通天阁_不止于学习:[https://t.me/tongtiange](https://t.me/tongtiange)
+*   不存在的世界:[https://t.me/illusory_world](https://t.me/illusory_world)
+*   Milkice’s NG:[https://t.me/milkice_portal](https://t.me/milkice_portal)
+*   缤纷世界的彩色冒险:[https://t.me/bunte_Welt](https://t.me/bunte_Welt)
+*   笔记本：句子摘抄:[https://t.me/LinsBookA](https://t.me/LinsBookA)
+*   笔记本：好图收藏与整理:[https://t.me/linyunbook2](https://t.me/linyunbook2)
+*   小黄车分享:[https://t.me/shortyellowbikeshare](https://t.me/shortyellowbikeshare)
+*   电报新闻:[https://t.me/chinesenewss](https://t.me/chinesenewss)
+*   MiaoTony’s Box:[https://t.me/MiaoTonyChannel](https://t.me/MiaoTonyChannel)
+*   南国微雪:[https://t.me/TinySnow4Yi](https://t.me/TinySnow4Yi)
+*   情话箱:[https://t.me/qinghua_box](https://t.me/qinghua_box)
+*   哆啦 B 梦 ACG 绅士游戏分享:[https://t.me/dlbmeng1](https://t.me/dlbmeng1)
+*   rvalue 的生草日常:[https://t.me/rvalue_daily](https://t.me/rvalue_daily)
+*   Galgame 频道:[https://t.me/Galgamer_Channel](https://t.me/Galgamer_Channel)
+*   大咕咕咕鸡:[https://t.me/dagudu](https://t.me/dagudu)
+*   Menhera-Channel:[https://t.me/nanasekurumi](https://t.me/nanasekurumi)
+*   风向旗参考快讯:[https://t.me/xhqcankao](https://t.me/xhqcankao)
+*   SOGIE 讲座频道:[https://t.me/sogie_webinar](https://t.me/sogie_webinar)
+*   Parallel Experiments:[https://t.me/LinghaoCh](https://t.me/LinghaoCh)
+*   鹤望兰:[https://t.me/bpsheel](https://t.me/bpsheel)
+*   Listen to Reza:[https://t.me/Listentoreza](https://t.me/Listentoreza)
+*   书籍目录:[https://t.me/jumpto22222](https://t.me/jumpto22222)
+*   悦读「优质少量 RSS 聚合」:[https://t.me/dailyrss](https://t.me/dailyrss)
+*   新闻联播:[https://t.me/CCTVNewsBroadcast](https://t.me/CCTVNewsBroadcast)
+*   一个兴趣使然的动漫切段频道:[https://t.me/xqsranimegif](https://t.me/xqsranimegif)
+*   一个兴趣使然的 PC 壁纸频道:[https://t.me/CGSFW](https://t.me/CGSFW)
+*   A Place Of Happiness:[https://t.me/get_happiness](https://t.me/get_happiness)
+*   馒头的日常:[https://t.me/xiao_man_tou](https://t.me/xiao_man_tou)
+*   Kartoshka:[https://t.me/sweet_kartoshka](https://t.me/sweet_kartoshka)
+*   小岛电波:[https://t.me/biubiubiuchat](https://t.me/biubiubiuchat)
+*   水水水博物馆:[https://t.me/water_water_water_2077](https://t.me/water_water_water_2077)
+*   深夜电台：武志红心理学【完结】:[https://t.me/wuzhihongxinlixue](https://t.me/wuzhihongxinlixue)
+*   卖女孩的杂货铺:[https://t.me/mxbababa2020](https://t.me/mxbababa2020)
+*   知音:[https://t.me/Musiccnchannel](https://t.me/Musiccnchannel)
+*   云上报刊亭:[https://t.me/magazinesclub](https://t.me/magazinesclub)
+*   ASMR 优质分享:[https://t.me/asmrforme](https://t.me/asmrforme)
+*   115 资源 - 懒狗集中营:[https://t.me/vip115hot](https://t.me/vip115hot)
+*   教程课程分享:[https://t.me/fufeikc](https://t.me/fufeikc)
+*   纪录片自留地:[https://t.me/litterpanda](https://t.me/litterpanda)
+*   读・书:[https://t.me/readingeventhosting](https://t.me/readingeventhosting)
+*   日常人间观察:[https://t.me/hayami_kiraa](https://t.me/hayami_kiraa)
+*   In The Flux:[https://t.me/intheflux](https://t.me/intheflux)
+*   無逸齋隨筆:[https://t.me/todayread](https://t.me/todayread)
+*   落枕电波:[https://t.me/Bakage1016](https://t.me/Bakage1016)
+*   屏浅隐狱:[https://t.me/peopleofscreen](https://t.me/peopleofscreen)
+*   擅长搜索的高木同学:[https://t.me/gaomutongxue](https://t.me/gaomutongxue)
+*   开源社区频道:[https://t.me/opencfdchannel](https://t.me/opencfdchannel)
+*   精品搞笑 gif（频道）:[https://t.me/gaoxiaogif8](https://t.me/gaoxiaogif8)
+*   車車的阁楼:[https://t.me/DuskPipe](https://t.me/DuskPipe)
+*   Never mind:[https://t.me/ButNothingHappened](https://t.me/ButNothingHappened)
+*   吴说区块链:[https://t.me/wublock](https://t.me/wublock)
+*   币圈快讯:[https://t.me/btcnewsdaily](https://t.me/btcnewsdaily)
+*   快讯猎手（重要版）:[https://t.me/zhongyaokuaixun](https://t.me/zhongyaokuaixun)
+*   Find Blog👁发现博客:[https://t.me/findblog](https://t.me/findblog)
+*   苍穹の下・SKY 的 Blog:[https://t.me/blueskyxnblog](https://t.me/blueskyxnblog)
+*   瞎玩菌:[https://t.me/blindgamer](https://t.me/blindgamer)
+*   Tesla China 🅥:[https://t.me/Teslacn](https://t.me/Teslacn)
+
+##### 机器人 Bot
+
+###### 官方认证 Bot
+
+*   [BotFather](https://t.me/BotFather) 是所有机器人的 god 了，Telegram 官方管理；可以用它创建机器人和管理机器人，你可以利用机器人 API, 帮你自己很多事情
+*   [IFTTT](https://t.me/IFTTT) ifttt 的官方机器人，可以很方便的和 ifttt 里的其他服务连接，比如订阅某个网站的 RSS, 如果有更新就会自动把 RSS 内容推送到这个机器人，减少了频繁刷新网站来获取新的内容
+*   [GmailBot](https://t.me/GmailBot) 可以在这里就方便的收发 Gmail
+*   [DiscussBot](https://t.me/discussbot) 官方出的评论机器人，可以在频道每条消息下面点击添加评论
+*   [MTProxy Admin Bot](https://t.me/MTProxybot) 设置和管理 Telegram MTProto 服务器.
+*   [Stickers](https://t.me/Stickers) 使用此机器人创建贴纸并获取贴纸的使用统计数据.
+*   [SpamBot](https://t.me/SpamBot) 官方处理 spam 事务的机器人
+*   [VerifyBot](https://t.me/VerifyBot) 官方认证账号的机器人
+*   [Telegraph](https://t.me/telegraph) This bot can help you log in on Telegra.ph, manage your articles, and get page view statistics.
+*   [Previews](https://t.me/previews) Use this bot to leave feedback about webpage previews generated for Telegram’s Instant View feature.
+*   [Designers Bot](https://t.me/design_bot) This bot accepts UI layouts and animations intended to improve Telegram. Best contributions are published in @designers
+*   [Jobs Bot](https://t.me/jobs_bot) This bot lists career opportunities at Telegram and accepts candidates’ applications. Available at telegram.org/jobs
+*   [GDPR Bot](https://t.me/gdprbot) Telegram’s Official GDPR bot.
+*   [GameBot](https://t.me/gamebot) I’m a demo bot for the Telegram Gaming Platform. I can get you a few fun sample games to play.
+*   [ContestBot](https://t.me/ContestBot) ContestBot is a way for Telegram to hold online competitions and find new members for the Telegram team.
+*   [QuizBot](https://t.me/QuizBot) Create a quiz with several multiple choice questions and test your friends.
+
+###### 其他
+*   [这个我知道](https://t.me/keyword_reply_bot) 本机器人能够自动回复关键词对应的内容
+*   [这个我删了 Bot](https://t.me/keyworddel_bot) 自动删除’推广 / 广告 / 菠菜’等等消息
+*   [Vultr 助手 Bot](https://t.me/vultr_helper_bot) 绑定 Vultr 账户，定时提醒 Vultr 账户的余额和流量不足信息
+*   [Telegram 权限管理 Bot](https://t.me/autopm_bot) Telegram 自动管理权限，指定时间自动关闭 / 打开群组权限
+*   [TGX - 频道秘书](https://t.me/zh_secretary_bot) Telegram 中文群组索引导航
+*   [北极星搜索](https://t.me/PolarisseekBot) Telegram 中文群组索引导航
+*   [超级索引](https://t.me/SuperIndexCNBot) Telegram 中文群组频道搜索机器人
+*   [超级索引](https://t.me/hao1234bot) Telegram 中文群组频道搜索机器人
+*   [TGCN - 群组频道狐](https://t.me/zh_groups_bot) Telegram 中文群组频道搜索机器人
+*   [超级搜索](https://t.me/So1234Bot) Telegram 中文群组频道搜索机器人
+*   [新频道群组导航](https://t.me/groups_cnbot) 新频道群组导航
+*   [Translate Father](https://t.me/TranslateFather_bot) 翻译消息
+*   [Yandex.Translate](https://t.me/YTranslateBot) 翻译消息
+*   [Language Translator](https://t.me/ang_translate_bot) 翻译消息
+*   [中英翻譯 (English Chinese (Mandarin) translation)](https://t.me/en_to_tw_bot) 翻译消息
+*   [Sticker To GIF](https://t.me/Sticker2GIFBot) 贴纸下载，支持动态贴纸
+*   [Sticker Downloader](https://t.me/Stickerdownloadbot) 贴纸下载
+*   [StickerSetBot](https://t.me/stickerset2packbot) 贴纸下载
+*   [TG Downloader](https://t.me/GIFDownloader_bot) GIF 和贴纸下载
+*   [Manybot](https://t.me/Manybot) Manybot lets you create your own bots. Send messages, create custom commands and menus. Press Send message to begin
+*   [ControllerBot](https://t.me/ControllerBot) Awesome bot for channel owners that helps you to create rich posts, view stats and more.
+*   [vote](https://t.me/vote) 投票机器人，新建一个投票发布在群里，每一次投票都是实时显示结果的，结果会以十分直观的方式展示
+*   [PTRankBot](https://t.me/PTRankBot) 可以帮助你搜索和分享 iOS/macOS 应用，只需要在聊天框输入 @PTRankBot 和关键字，等待几秒就会出现搜索结果。支持命令查看 Store 各种排名，如 /top_free 查看每周免费排行榜
+*   [ehForwarderBot](https://t.me/EFBSupport) ehForwarderBot 能够将微信和 Telegram 连接在一起，你可以在 Telegram 上收发微信消息，详情查看:[https://meta.appinn.net/t/efb-v2-telegram-docker/10888](https://meta.appinn.net/t/efb-v2-telegram-docker/10888).GitHub 地址: [https://github.com/blueset/ehForwarderBot](https://github.com/blueset/ehForwarderBot)
+*   [AirPollution_Bot](https://t.me/AirPollution_Bot) 查询空气质量 (AQI), 数据来源为 aqicn.org, 比如发送 “/aqi 成都” 就会立即返回你成都的空气质量
+*   [temp_mail_bot](https://t.me/temp_mail_bot) 有效期 10 分钟临时邮箱服务，当你想要临时注册一个网站的账号时就可以用这种临时邮箱服务，避免自己的邮箱泄露也免于各种垃圾广告骚扰
+*   [utubebot](https://t.me/utubebot) YouTube 视频下载或者音频转换服务，把 YouTube 的链接发过去它就会帮你转换格式并为你提供文件，便于你下载此视频
+*   [apkdl_bot](https://t.me/apkdl_bot) Android APK 搜索和下载，输入 App 名即可提供多个来自国外网站 APK 下载链接，点 Preview 可以查看图标
+*   [LikeBot](https://t.me/LikeBot) 一个很酷的机器人，用基于表情符号的按钮创建帖子，可以点击表情符号投票.
+*   [Instasave_bot](https://t.me/Instasave_bot) 下载 Instagram 和 YouTube 的图片和视频
+*   [Creation Date](https://t.me/creationdatebot) 查询你的 tg ID 和注册时间
+*   [getidsbot](https://t.me/getidsbot) 查询你的 tg ID 和注册时间
+*   [TGSoBot](https://t.me/TGSoBot) Telegram 中文圈内容搜索引擎，主要用于支持官方不友好的中文搜索，有任何资源该引擎可以做到秒回.
+*   [TeleMe](https://www.teleme.io/) TeleMe is simple management & analytics software for Telegram communities. TeleMe 是一个方便好用的 Telegram 社群管理和统计 Bot.
+*   [Dr.Web](https://t.me/DrWebBot) 用于检测群组内的网页链接和文件，并在包含潜在威胁时发出警告.
+*   [daixiahu_bot](https://t.me/daixiahu_bot) 智能合租机器人。合租 求租 智能机器人，方便用户以最快的速度找到合适的车，支持 Netflix, Spotify, Youtube 等
+*   [cnLottery123_bot](https://t.me/cnLottery123_bot) 抽奖助手：便好用、公平公正的 Telegram 群组抽奖工具。适用于群里抽奖、抽签抓阄等场景.
+*   [tgLotteryBot](https://t.me/tgLotteryBot) 抽奖机器人
+*   [sauweenbot](https://t.me/sauweenbot) 一个中文群组管理机器人，内置一些全中文得简单操作
+*   [letmebot](https://t.me/letmebot) Teach those pricks how to use a search engine properly.
+*   [Doge Bot](https://t.me/jpg_dog_bot) JPG.DOG 的上线 Doge Bot 图床机器人，只需私聊发送图片，即可自动上传图床并返回链接！
+*   [areply_bot](https://t.me/areply_bot) 自动解除频道消息在群组的同步置顶，附带群组日常维护常用小功能
+*   [WuhanPneumoniaBot](https://t.me/WuhanPneumoniaBot) 武汉新型冠状病毒感染肺炎查询
+*   [haoyybot](https://t.me/haoyybot) 歌曲音乐搜索机器人，输入歌曲名或者歌手名，把 TG 变成音乐播放器！
+*   [🎵 Music Downloader](https://t.me/MusicDownloaderRobot) Spotify 音乐下载
+*   [SangMataInfo_bot](https://t.me/SangMataInfo_bot) 群成员更改名称通知提醒
+*   [zlibrary](https://t.me/zlibrarybot) 搜书机器人
+*   [Nexus Search](https://t.me/libgen_scihub_bot) 搜书机器人
+*   [BookDown](https://t.me/bookdownbot) 搜书机器人
+*   [File Converter](https://t.me/newfileconverterbot) 格式转换:azw3 or mobi to epub
+*   [Send to Kindle](https://t.me/Send2KindleBot) Send to Kindle Bot
+*   [InstantViewBot](https://t.me/CorsaBot) 可以把文章都生成支持 Instant View
+*   [ChnInstantViewBot](https://t.me/ChnInstantViewBot) 可以把文章都生成支持 Instant View
+*   [WebpageBot](https://t.me/WebpageBot) 强制刷新 Telegram 链接预览
+*   [ReactBot](https://t.me/ReactBot) 频道消息添加点赞和评论按钮
+*   [ComenBot](https://t.me/ComenBot) 留言 / 评论机器人
+*   [CommentsBot](https://t.me/CommentsBot) 留言 / 评论机器人
+*   [CommentBot](https://t.me/bakalztbot) 频道消息添加点赞和评论按钮
+*   [Like and Comment](https://t.me/LikeComBot) 频道消息添加点赞和评论按钮
+*   [Channel Helper](https://t.me/jogle_channel_bot) 频道消息添加点赞和评论按钮
+*   [septs_autoclean_bot](https://t.me/septs_autoclean_bot) 频道助手
+*   [tgcnjoincaptchabot](https://t.me/tgcnjoincaptchabot) TGCN-CAPTCHA 加群验证
+*   [Jqs7ZweiBot](https://t.me/Jqs7ZweiBot) 加群验证
+*   [Captchat_Bot](https://t.me/Captchat_Bot) 加群验证
+*   [WatchDoorBot](https://t.me/WatchDoorBot) 加群验证
+*   [WooMaiBot](https://t.me/WooMaiBot) 加群验证
+*   [The Join Captcha Bot](https://t.me/join_captcha_bot) 加群验证
+*   [VideoTubeBot](https://t.me/VideoTubeBot) Downloads audio/video from YouTube.
+*   [PronunciationBot](https://t.me/PronunciationBot) 可以将 84 种语言文字转换成对应的语音 学习外语发音的利器
+*   [Shorten URL](https://t.me/referbot) 提供短网址 ShortenURL 服务，使用的网址为 ume.la
+*   [TransferRobot](https://t.me/TransferRobot) 上传文件后提供下载链接，适合做图床和文件分享
+*   [SpotifyMusicDownloaderBot](https://t.me/SpotifyMusicDownloaderBot) Spotify Music Downloader
+*   [Minesweeper](https://t.me/mine_sweeper_bot) 扫雷游戏
+*   [Combot](https://t.me/combot) 统计群消息情况，群成员情况
+*   [NodeRSSBot](https://t.me/NodeRSS_bot) A RSSBot written in Node.js https://github.com/fengkx/NodeRSSBot feel free to post issue or pull request
+*   [RustRssBot](https://t.me/RustRssBot) 中文 Telegram RSS 机器人
+*   [TheFeedReaderBot](https://t.me/TheFeedReaderBot) RSS 机器人
+*   [RSSchina_bot](https://t.me/RSSchina_bot) rss 订阅机器人
+*   [PdoRSS_bot](https://t.me/PdoRSS_bot) 一个勤勤恳恳的 RSS 订阅器
+*   [Warma Bot](https://t.me/warma_bot) 好听的萌妹子声音
+*   [get_id_bot](https://t.me/get_id_bot) get your telegram’s chat ID
+*   [GroupHub_bot](https://t.me/GroupHub_bot) tg 中文圈优质群组
+*   [TWBlackList_bot](https://t.me/TWBlackList_bot) 登爺的名單，辅助管理群成员，帮你 ban 人
+*   [CNBlackListRBot](https://t.me/CNBlackListRBot) 辅助管理群成员，帮你 ban 人
+*   [GroupButler](https://t.me/GroupButler_bot) This bot can help you in managing your group with rules, anti-flood, description, custom triggers, and much more!
+*   [AntiServiceMessageBot](https://t.me/AntiServiceMessageBot) 自动把入群和退群通知删除
+*   [Anonymous Telegram Bot](https://t.me/Anonymous_telegram_bot) 群组匿名消息机器人。将机器人加入群组后，私聊机器人，可以通过机器人将文本、视频等匿名发送到群组内.
+*   [AntiHyperlinkBot](https://t.me/AntiHyperlinkBot) 自动删除包含有链接的消息
+*   [AntiCommandBot](https://t.me/AntiCommandBot) 自动删除 / 命令 的消息
+*   [AntiArabicScriptBot](https://t.me/AntiArabicScriptBot) removes all messages which contain arabic script
+*   [Giphy GIF Search](https://t.me/gif) GIF 搜索
+*   [Wikipedia Search](https://t.me/wiki) Wikipedia 搜索
+*   [Markdown Bot](https://t.me/Bold) Markdown 格式编辑消息
+*   [JPEGreenBot](https://t.me/JPEGreenBot) 图片劣化
+*   [ImageBot](https://t.me/imagebot) This simple bot can fetch images and GIFs upon request.
+*   [IMDb](https://t.me/imdb) This bot automatically works in all your chats and groups, no need to add it anywhere. Simply type @imdb in any chat
+*   [Classical Music](https://t.me/music) This bot can help you find beautiful classical music.
+*   [YouTube Bot](https://t.me/youtube) This bot can help you find and share YouTube videos.
+*   [GitHub](https://t.me/githubbot) Get notifications about events in your public GitHub repositories and post comments directly from Telegram.
+*   [Shop Bot](https://t.me/shopbot) Try out the new Telegram Payments without actually paying anything.
+*   [StickerBot](https://t.me/sticker) This bot will help you find new relevant stickers for your favorite emoji.
+*   [Gamee](https://t.me/gamee) The best games on Telegram! Pick a game and challenge your friends
+*   [Hot Or Bot](https://t.me/hotorbot) Like others and let others like you.
+*   [GetMediaBot](https://getmediabot/) Get any media file from any where…
+*   [NoSticker](https://t.me/nosticker_bot) 自动删除群里的 Stickers
+*   [SpamMeNotBot](https://t.me/SpamMeNotBot) 保护您的组免受垃圾邮件 / 攻击
+*   [socks5_bot](https://t.me/socks5_bot) 免费获得 Socks5 代理
+*   [MahoNato_bot](https://t.me/MahoNato_bot) 森近真帆
+*   [telegraph](https://t.me/telegraph) 管理 Telegra.ph 文章
+*   [mdrobot](https://t.me/mdrobot) Markdown 机器人
+*   [referbot](https://t.me/referbot) 提供短网址 Shorten URL 服务，使用的网址为 ume.la
+*   [LinkGeneratorBot](https://t.me/LinkGeneratorBot) 短地址服务
+*   [QRCodeRoBot](https://t.me/QRCodeRoBot) 二维码识别机器人，通过拍照和上传图片的方式识别
+*   [thesafebot](https://t.me/thesafebot) 一个利用 telegram 存储功能实现额外加密的云存储服务
+*   [MyTeleCloudBot](https://t.me/MyTeleCloudBot) 另一个云存储服务，没有额外加密，不过功能还行
+*   [topdf_bot](https://t.me/topdf_bot) 转换文件为 PDF 格式 ss
+*   [Instasave_bot](https://t.me/Instasave_bot) 用来下载 instagram 的 bot
+*   [my_ali_bot](https://t.me/my_ali_bot) 用来在 AliExpress 上购物
+*   [TrustedSleepBot](https://t.me/TrustedSleepBot) 可信睡眠机器人
+*   [ddoc_bot](https://t.me/ddoc_bot) DDOS 攻击器
+*   [storebot](https://t.me/storebot) 机器人商店，索引了各种机器人，可以寻找自己感兴趣的
+*   [tchannelsbot](https://t.me/tchannelsbot) 索引了很多 Channel, 可以寻找自己感兴趣的 Channel
+*   [CostflowCryptoBot](https://t.me/CostflowCryptoBot) Cryptocurrencies
+*   [CostflowCurrencyBot](https://t.me/CostflowCurrencyBot) Real world currency rates/convention
+*   [stockprice_bot](https://t.me/stockprice_bot) 中文股票机器人，A 股 / 美股 / 港股
+*   [LotteryBot](https://t.me/LotteryBot) 一个比特币抽奖的机器人
+*   [todobot](https://t.me/todobot) To do list manager
+*   [rJailbreakBot](https://t.me/rJailbreakBot) Jailbreak Bot
+*   [iqdb_org_bot](https://t.me/iqdb_org_bot) IQDB Bot
+*   [ascii2d_bot](https://t.me/ascii2d_bot) Ascii2d Bot
+*   [wangjingze_bot](https://t.me/wangjingze_bot) 王境泽 Bot
+*   [yaplus_bot](https://t.me/yaplus_bot) Yaplus Bot
+*   [kunsu_bot](https://t.me/kunsu_bot) HandsUp Bot
+*   [youqianbot](https://t.me/youqianbot) 为所欲为 Bot
+*   [redpack_bot](https://t.me/redpack_bot) 红包 Bot
+*   [penle_bot](https://t.me/penle_bot) 喷了 Bot
+*   [jichou_bot](https://t.me/jichou_bot) 记仇 Bot
+*   [bugele_bot](https://t.me/bugele_bot) 不鸽了 Bot
+*   [jidubot](https://t.me/jidubot) 嫉妒 Bot
+*   [favorite_stickers_bot](https://t.me/favorite_stickers_bot) 贴纸包 Bot
+*   [PLGameBot](https://t.me/PLGameBot) 在线游戏的机器人
+*   [Cctv365bot](https://t.me/Cctv365bot) 电影搜索
+*   [Telegram Bot List](https://github.com/goq/telegram-list/blob/master/bots.md)
+*   [Telegram Bot List](https://github.com/eternnoir/pyTelegramBotAPI#bots-using-this-api)
+*   [Telegram Bot Store](https://storebot.me/)
+*   [Telegram Bots](https://blog.rawstack.co/post/telegram-bots)
+
+#### 参考资料
+
+- [BotoStore](https://botostore.com/) 一个专门收录telegram bot的国外网站，过滤了垃圾邮件和成人内容的bot
+- [BotsArchive](https://botsarchive.com/) Telegram机器人档案，不收录成人内容的bottelegram频道：[BotsArchive](https://t.me/BotsArchive)
+- [Telegram Bot：@BotsArchiveBot](https://t.me/BotsArchiveBot)
+- [Search Telegram Bots](https://botlist.infotelbot.com/) 一个按类型查找电报机器人网站
+
+（排名不分先后）
