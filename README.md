@@ -90,6 +90,30 @@
 | 电报会员自助开通机器人       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通Telegram电报会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 | 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人 |
 
+## Telegram iOS 苹果版 官方原生客户端进入限制群 (开车群) 的方法
+![](https://i.imgur.com/Ba6epuD.png)
+
+1、三个方式开启:
+
+>>方式 a：打开 windows 电脑桌面客户端, 左上角三短线: 设置→隐私安全→开启 ” 显示含有敏感内容的媒体 ”
+
+![](https://i.imgur.com/Yl9H4q4.png)
+
+Telegram 汉化，解除 +86 限制和 IOS 进屏蔽群以及账号注销等教程
+>>方式 b：打开 macOS 苹果电脑桌面客户端: 设置→隐私安全→开启 ” 显示含有敏感内容的媒体 ”
+
+>>方式 c：网页版: 手机或电脑浏览器访问网页版地址: https://web.telegram.org/
+
+对话列表→左上角 / 右上角三短线→Settings→打开 ”Show Sensitive Content”.
+
+3、整体的过程就是桌面端或网页版开启显示, 手机端就可以了, 不需要在手机端 APP 设置中操作.
+
+要求:
+
+* Telegram iOS 客户端版本 ≥ 5.13
+
+备注: Windows, macOS, Linux 系统的电脑都可以使用   Telegram Desktop 版本客户端.(macOS 上 Mac App Store 中的 ”Telegram Desktop” 已更名为 ”Telegram Lite”)
+
 ## +86 无法接收验证码问题
 
 视频参考：https://www.youtube.com/watch?v=ErfanyyANUI
