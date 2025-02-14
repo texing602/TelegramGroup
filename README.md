@@ -46,8 +46,7 @@
 | 🔥 频道导航/群组导航 | [https://t.me/tgpddh](https://t.me/tgpddh)   | Telegram频道和群组导航合集      |
 | 🚀 每日免费节点       | [https://t.me/freevpntg](https://t.me/freevpntg) | 每日免费提供高速的VPN节点         |
 | 🔥 电报中文包       | [https://t.me/go2cn](https://t.me/go2cn) | 电报使用人数最多的中文包         |
-| 🔥 频道搬运        | [https://t.me/xiunvbanyun](https://t.me/xiunvbanyun) |   💰解放双手全自动搬运别的频道视频和内容，涨粉神器💰   |
-| 🔥 帮申请电报API        | [https://t.me/shenqingapi](https://t.me/shenqingapi) |   网络有问题找他可以帮忙代申请100%成功，5U或者是30块   |
+| 🔥 红包接龙        | [https://t.me/HBJL](https://t.me/HBJL?start=invite_7439567495) |   大家都在玩惊险刺激的红包接龙游戏   |
 | 🔥 TG全能搜索        | [https://t.me/sesou20w](https://t.me/sesou20w) | 支持多种资源的强大搜索引擎      |
 | 🎥 电影搜索Pron      | [https://t.me/sepiansousuo](https://t.me/sepiansousuo) | 支持电影、资源的搜索功能      |
 | 🔥 极搜20万人搜索群   | [https://t.me/jisou200000](https://t.me/jisou200000) | 热门搜索群，涵盖多种资源       |
@@ -79,6 +78,7 @@
 | 自动转发频道机器人(涨粉神器)                          | 自动监听搬运别人频道内容,提供源码及搭建服务[@banyunpindao](https://t.me/banyunpindao) | 100U            |
 | 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
 | 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 软件下载地址:[网盘地址](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw),使用教程:[视频教程](https://www.youtube.com/watch?v=t09ZIz3k-i4),自助购买:[@autocaihongbot](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi) | ¥200             |
+| 搜索机器人源码                 | 有需要自行联系[@tghzsx_bot](https://t.me/tghzsx_bot)进行搜索机器人测试体验 | 10000U             |
 <div style="display: flex; justify-content: space-between;">
   <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹群发器破解版免费" style="width: 30%;"/>
   <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹群发器破解版" style="width: 30%;"/>
@@ -90,30 +90,6 @@
 | :---        |    :----:   |          :--- |
 | 电报会员自助开通机器人       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通Telegram电报会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
 | 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人 |
-
-## Telegram iOS 苹果版 官方原生客户端进入限制群 (开车群) 的方法
-![](https://i.imgur.com/Ba6epuD.png)
-
-1、三个方式开启:
-
->>方式 a：打开 windows 电脑桌面客户端, 左上角三短线: 设置→隐私安全→开启 ” 显示含有敏感内容的媒体 ”
-
-![](https://i.imgur.com/Yl9H4q4.png)
-
-Telegram 汉化，解除 +86 限制和 IOS 进屏蔽群以及账号注销等教程
->>方式 b：打开 macOS 苹果电脑桌面客户端: 设置→隐私安全→开启 ” 显示含有敏感内容的媒体 ”
-
->>方式 c：网页版: 手机或电脑浏览器访问网页版地址: https://web.telegram.org/
-
-对话列表→左上角 / 右上角三短线→Settings→打开 ”Show Sensitive Content”.
-
-3、整体的过程就是桌面端或网页版开启显示, 手机端就可以了, 不需要在手机端 APP 设置中操作.
-
-要求:
-
-* Telegram iOS 客户端版本 ≥ 5.13
-
-备注: Windows, macOS, Linux 系统的电脑都可以使用   Telegram Desktop 版本客户端.(macOS 上 Mac App Store 中的 ”Telegram Desktop” 已更名为 ”Telegram Lite”)
 
 ## +86 无法接收验证码问题
 
@@ -144,7 +120,7 @@ Telegram 汉化，解除 +86 限制和 IOS 进屏蔽群以及账号注销等教�
 
 官网申请API: https://my.telegram.org/auth?to=apps
 
-网络有问题我这边可以帮忙代申请100%成功，5U或者是30块有需要联系TG:[@shenqingapi](https://t.me/shenqingapi)
+网络有问题我这边可以帮忙代申请100%成功，5U或者是30块有需要联系TG:[@banyunpindao](https://t.me/banyunpindao)
 
 | Field         | Value                                    |
 |---------------|------------------------------------------|
