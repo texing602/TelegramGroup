@@ -22,11 +22,11 @@
 </div>
 
 <!-- BEGIN_REPLACE_SECTION -->
-| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7554364416) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7554364416 ) |
+| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7704234080) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7704234080) |
 |:---:|:---:|:---:|
-|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7554364416) |  [![Telegram频道导航/TG导航/Telegram频道推荐/Telegram导航/频道导航/电报导航/电报推荐/TG推荐](https://i.imgur.com/31YFV0f.png)<br>Telegram频道导航](https://tgdh.github.io) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7831516366)|
-| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqi520)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/chengrendaohang520) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwang007)|
-| [![彩虹群发破解版/飞机/电报Telegram tdata/低价TG账号/TDATA/电脑直登/直登号tdata/协议号](https://i.imgur.com/SEd6n5H.png)<br>电报稀缺资源大全中文搜索](https://t.me/zysoso)|  [![彩虹群发器/彩虹群发/彩虹群发器破解版](https://i.imgur.com/6a8Zz9h.png)<br>彩虹群发器破解版](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)  |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
+|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) |  [![Telegram频道导航/TG导航/Telegram频道推荐/Telegram导航/频道导航/电报导航/电报推荐/TG推荐](https://i.imgur.com/31YFV0f.png)<br>Telegram频道导航](https://tgdh.github.io) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
+| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqi1314)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesesousuoba) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsearch)|
+| [![彩虹群发破解版/飞机/电报Telegram tdata/低价TG账号/电报资源搜索](https://i.imgur.com/xff6d05.png)<br>电报稀缺资源大全中文搜索](https://t.me/sousuohp)|  [![彩虹群发器/彩虹群发/彩虹群发器破解版](https://i.imgur.com/6a8Zz9h.png)<br>彩虹群发器破解版](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)  |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
 <!-- END_REPLACE_SECTION -->
 </table>
 
@@ -55,7 +55,7 @@
 | 🔥 神马搜索         | [https://t.me/smss](https://t.me/smss?start=spread_7202424896)       | 提供快速资源搜索服务          |
 | 🔥 aiso中文搜索     | [https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)       | 中文资源搜索引擎             |
 | 🔥 哆啦A梦软件App| [https://t.me/dlamapp](https://t.me/dlamapp) | 各种软件、App和VPN破解资源    |
-| 🔥 NSFW| [https://t.me/nzyjy](https://t.me/nzyjy) | 扔子研究院    |
+| 🔥 NSFW| [https://github.com/telegrampron/telegram-nsfw](https://github.com/telegrampron/telegram-nsfw) | 电报极品频道，懂的都懂    |
 | 🔥 色瓜中心| [https://t.me/seguazhongxin](https://t.me/seguazhongxin) | 分享全网第一热瓜|
 | 🔥 全网直播回放      | [https://t.me/luzhiob](https://t.me/luzhiob)   | 直播回放资源，涵盖抖音、斗鱼等  |
 | 🎥 阿里云盘4K高清资源  | [https://t.me/alidriver4k](https://t.me/alidriver4k) | 阿里云盘的4K高清资源分享      |
@@ -65,7 +65,7 @@
 | 🔥 账号星球         | [https://www.accountboy.com](https://www.accountboy.com/?source=tggroup) | 苹果全球id，GPT/奈飞合租，海外社媒账号/邮箱  |
 | 🔞 推特女菩萨      | [https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)  |  骗子    |
 | 🔞 女神聚集地       | [https://t.me/+d1li_2Da7JkyYmE0](https://t.me/+d1li_2Da7JkyYmE0) |    骗子  |
-| 🔞 不良少女         | [https://t.me/+JSktL905RudlZmVl](https://t.me/+JSktL905RudlZmVl) |      骗子|
+| 🔞 不良少女         | [https://t.me/+DbLZRxZPuskyM2E0](https://t.me/+DbLZRxZPuskyM2E0) |      骗子|
 | 🔞 女大学生         | [https://t.me/+bP2C6wrFOjxkMTVk](https://t.me/+bP2C6wrFOjxkMTVk) |      骗子|
 | 🔞 全职宝妈         | [https://t.me/+AKqlE82RBJk0NmJh](https://t.me/+AKqlE82RBJk0NmJh) |      骗子|
 | 🔞 性瘾少女         | [https://t.me/+o5a3hQeuFg01MGRl](https://t.me/+o5a3hQeuFg01MGRl) |      骗子|
@@ -78,6 +78,7 @@
 | 自动转发频道机器人(涨粉神器)                          | 自动监听搬运别人频道内容,提供源码及搭建服务[@banyunpindao](https://t.me/banyunpindao) | 100U            |
 | 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
 | 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 软件下载地址:[网盘地址](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw),使用教程:[视频教程](https://www.youtube.com/watch?v=t09ZIz3k-i4),自助购买:[@autocaihongbot](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi) | ¥200             |
+| 搜索机器人源码                 | 有需要自行联系[@tghzsx_bot](https://t.me/tghzsx_bot)进行搜索机器人测试体验 | 10000U             |
 <div style="display: flex; justify-content: space-between;">
   <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹群发器破解版免费" style="width: 30%;"/>
   <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹群发器破解版" style="width: 30%;"/>
@@ -115,7 +116,7 @@
 
 - 淘宝口令：`7$nLhL3ujoLr9$:// CZ3148`
 
-### Telegram API申请
+### Telegram API申请(有偿代申请)
 
 官网申请API: https://my.telegram.org/auth?to=apps
 
