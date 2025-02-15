@@ -22,10 +22,10 @@
 </div>
 
 <!-- BEGIN_REPLACE_SECTION -->
-| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7744961564) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7744961564) |
+| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7202424896) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7202424896) |
 |:---:|:---:|:---:|
-|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7744961564) |  [![Telegram频道导航/TG导航/Telegram频道推荐/Telegram导航/频道导航/电报导航/电报推荐/TG推荐](https://i.imgur.com/31YFV0f.png)<br>Telegram频道导航](https://tgdh.github.io) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
-| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqi520)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/chengrendaohang520) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwang007)|
+|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) |  [![Telegram频道导航/TG导航/Telegram频道推荐/Telegram导航/频道导航/电报导航/电报推荐/TG推荐](https://i.imgur.com/31YFV0f.png)<br>Telegram频道导航](https://tgdh.github.io) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
+| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupian20w)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sese20w) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwang007)|
 | [![彩虹群发破解版/飞机/电报Telegram tdata/低价TG账号/电报资源搜索](https://i.imgur.com/xff6d05.png)<br>电报稀缺资源大全中文搜索](https://t.me/sousuohp)|  [![彩虹群发器/彩虹群发/彩虹群发器破解版](https://i.imgur.com/6a8Zz9h.png)<br>彩虹群发器破解版](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)  |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
 <!-- END_REPLACE_SECTION -->
 </table>
@@ -76,9 +76,10 @@
 | 自动上传脚本                                | 提供源码及搭建服务，效果查看：[@dysyg](https://t.me/dysyg)          | 50U             |
 | 修女频道搬运                                | 搬运整个频道10U,自行联系[@banyunpindao](https://t.me/banyunpindao) | 10U   |
 | 自动转发频道机器人(涨粉神器)                          | 自动监听搬运别人频道内容,提供源码及搭建服务[@banyunpindao](https://t.me/banyunpindao) | 100U            |
-| 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
+| 自动转发频道机器人（文末广告+关键字替换+过滤）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
 | 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 软件下载地址:[网盘地址](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw),使用教程:[视频教程](https://www.youtube.com/watch?v=t09ZIz3k-i4),自助购买:[@autocaihongbot](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi) | ¥200             |
 | 搜索机器人源码                 | 有需要自行联系[@tghzsx_bot](https://t.me/tghzsx_bot)进行搜索机器人测试体验 | 10000U             |
+| 电报机器人开发                 | 有需要自行联系[@tghzsx_bot](https://t.me/tghzsx_bot) | 根据功能难易度报价            |
 <div style="display: flex; justify-content: space-between;">
   <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹群发器破解版免费" style="width: 30%;"/>
   <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹群发器破解版" style="width: 30%;"/>
