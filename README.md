@@ -22,10 +22,10 @@
 </div>
 
 <!-- BEGIN_REPLACE_SECTION -->
-| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7704234080) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7704234080) |
+| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7439567495) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7202424896) |
 |:---:|:---:|:---:|
-|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) |  [![Telegram频道导航/TG导航/Telegram频道推荐/Telegram导航/频道导航/电报导航/电报推荐/TG推荐](https://i.imgur.com/31YFV0f.png)<br>Telegram频道导航](https://tgdh.github.io) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
-| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqi1314)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesesousuoba) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsearch)|
+|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7439567495) |  [![Telegram频道导航/TG导航/Telegram频道推荐/Telegram导航/频道导航/电报导航/电报推荐/TG推荐](https://i.imgur.com/31YFV0f.png)<br>Telegram频道导航](https://tgdh.github.io) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
+| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianccav)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesou20w) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsearch)|
 | [![彩虹群发破解版/飞机/电报Telegram tdata/低价TG账号/电报资源搜索](https://i.imgur.com/xff6d05.png)<br>电报稀缺资源大全中文搜索](https://t.me/sousuohp)|  [![彩虹群发器/彩虹群发/彩虹群发器破解版](https://i.imgur.com/6a8Zz9h.png)<br>彩虹群发器破解版](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)  |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
 <!-- END_REPLACE_SECTION -->
 </table>
@@ -46,7 +46,7 @@
 | 🔥 频道导航/群组导航 | [https://t.me/tgpddh](https://t.me/tgpddh)   | Telegram频道和群组导航合集      |
 | 🚀 每日免费节点       | [https://t.me/freevpntg](https://t.me/freevpntg) | 每日免费提供高速的VPN节点         |
 | 🔥 电报中文包       | [https://t.me/go2cn](https://t.me/go2cn) | 电报使用人数最多的中文包         |
-| 🔥 红包接龙        | [https://t.me/HBJL](https://t.me/HBJL?start=invite_7439567495) |   大家都在玩惊险刺激的红包接龙游戏   |
+| 🔥 修女频道搬运        | [https://t.me/xiunvbanyun](https://t.me/xiunvbanyun) |   破解自动搬运别人频道到自己频道   |
 | 🔥 TG全能搜索        | [https://t.me/sesou20w](https://t.me/sesou20w) | 支持多种资源的强大搜索引擎      |
 | 🎥 电影搜索Pron      | [https://t.me/sepiansousuo](https://t.me/sepiansousuo) | 支持电影、资源的搜索功能      |
 | 🔥 极搜20万人搜索群   | [https://t.me/jisou200000](https://t.me/jisou200000) | 热门搜索群，涵盖多种资源       |
